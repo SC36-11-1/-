@@ -1,13 +1,24 @@
 
 
+### [DappRadar](https://dappradar.com)
+### https://www.dappchaser.com
 
-https://www.dappchaser.com
+<img width="2560" alt="Screen Shot 2023-08-16 at 3 13 20 PM" src="https://github.com/SC36-11-1/SC36-11-1/assets/133059820/d4d3e7b6-5fae-4371-9149-0fd730e039b9">
+
+![IMG_5598](https://github.com/SC36-11-1/SC36-11-1/assets/133059820/57028397-2639-431c-8cf0-cacfde0f93e2)
+
+![IMG_5597](https://github.com/SC36-11-1/SC36-11-1/assets/133059820/51daa1a3-7692-46fe-8ff6-ea104801a158)
+<img width="1221" alt="Screen Shot 2023-08-16 at 3 40 18 PM" src="https://github.com/SC36-11-1/SC36-11-1/assets/133059820/33ff584f-c1b6-4eed-89e8-6c9f21007c66">
+<img width="1233" alt="Screen Shot 2023-08-16 at 3 40 55 PM" src="https://github.com/SC36-11-1/SC36-11-1/assets/133059820/39d7e33b-9773-4443-99f1-9276489acf68">
+<img width="1225" alt="Screen Shot 2023-08-16 at 3 42 04 PM" src="https://github.com/SC36-11-1/SC36-11-1/assets/133059820/43d89be6-137a-4338-aaaa-d9607246525d">
+
+
 
 ![261136269-98c9af4f-e0f5-4284-91a2-d05400fbaaa5](https://github.com/SC36-11-1/-/assets/133059820/50296353-b384-482e-b7cc-3f9d2b1da4f5)
 
-https://buidlguidl.com
-https://solidity-by-example.org
-https://youtu.be/6dYc966_o4I
+### https://buidlguidl.com
+### https://solidity-by-example.org
+### https://youtu.be/6dYc966_o4I
 
 <img width="1403" alt="Screen Shot 2023-08-17 at 9 17 48 PM" src="https://github.com/SC36-11-1/SC36-11-1/assets/133059820/bb4bbcfa-9100-4ca8-a40b-584baea7ab1d">
 
@@ -15,29 +26,29 @@ https://youtu.be/6dYc966_o4I
 
 
 
-https://support.mirror.xyz/hc/en-us/articles/6847458952852-Step-by-step-Editor-guide
-https://docs.ens.domains/v/governance/
-https://discuss.ens.domains
+### https://support.mirror.xyz/hc/en-us/articles/6847458952852-Step-by-step-Editor-guide
+### https://docs.ens.domains/v/governance/
+### https://discuss.ens.domains
 
 
 <img width="2560" alt="Screen Shot 2023-08-17 at 10 40 28 PM" src="https://github.com/SC36-11-1/SC36-11-1/assets/133059820/a79f906f-c803-49d5-9c2a-7793e3f00776">
 
-https://youtu.be/yaa13eehgzo
-https://matplotlib.org/              Data Viz Artistic process explanation 
-https://blenderneuron.org/
+### https://youtu.be/yaa13eehgzo
+### https://matplotlib.org/              Data Viz Artistic process explanation 
+### https://blenderneuron.org/
 
-https://showcase.p5js.org/#/2022-All
+### https://showcase.p5js.org/#/2022-All
 
-https://openprocessing.org/class/56049/
+### https://openprocessing.org/class/56049/
 
-https://buhitter.com/author/p5xjs
+### https://buhitter.com/author/p5xjs
 
 
 <img width="1614" alt="Screen Shot 2023-08-18 at 4 18 46 PM" src="https://github.com/SC36-11-1/SC36-11-1/assets/133059820/0c8e7a88-e652-4075-afd2-6511d85af7a9">
 
 <img width="1636" alt="Screen Shot 2023-08-20 at 10 57 56 AM" src="https://github.com/SC36-11-1/SC36-11-1/assets/133059820/f9567dac-c5b6-4fb5-8412-233d20b9c0a8">
 
-https://www.tttc.ca/the-cortex/all/six-reasons-to-enter-the-2023-rookie-awards
+### https://www.tttc.ca/the-cortex/all/six-reasons-to-enter-the-2023-rookie-awards
 
 <img width="1637" alt="Screen Shot 2023-08-20 at 10 59 59 AM" src="https://github.com/SC36-11-1/SC36-11-1/assets/133059820/3764038c-45ac-4511-a314-e9ad8830e52b">
 <img width="1632" alt="Screen Shot 2023-08-20 at 11 00 17 AM" src="https://github.com/SC36-11-1/SC36-11-1/assets/133059820/935eaebc-bbf3-4c1d-9637-73e3922dc7f0">
