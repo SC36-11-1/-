@@ -13,6 +13,7 @@
 <img width="1233" alt="Screen Shot 2023-08-16 at 3 40 55 PM" src="https://github.com/SC36-11-1/SC36-11-1/assets/133059820/39d7e33b-9773-4443-99f1-9276489acf68">
 <img width="1225" alt="Screen Shot 2023-08-16 at 3 42 04 PM" src="https://github.com/SC36-11-1/SC36-11-1/assets/133059820/43d89be6-137a-4338-aaaa-d9607246525d">
 
+<img width="1399" alt="Screen Shot 2023-08-17 at 9 15 05 PM" src="https://github.com/SC36-11-1/SC36-11-1/assets/133059820/fe1df300-f689-4172-a127-50af32a6c224">
 
 
 ![261136269-98c9af4f-e0f5-4284-91a2-d05400fbaaa5](https://github.com/SC36-11-1/-/assets/133059820/50296353-b384-482e-b7cc-3f9d2b1da4f5)
@@ -44,7 +45,6 @@
 
 ### https://buhitter.com/author/p5xjs
 
-<img width="1399" alt="Screen Shot 2023-08-17 at 9 15 05 PM" src="https://github.com/SC36-11-1/SC36-11-1/assets/133059820/fe1df300-f689-4172-a127-50af32a6c224">
 
 <img width="1614" alt="Screen Shot 2023-08-18 at 4 18 46 PM" src="https://github.com/SC36-11-1/SC36-11-1/assets/133059820/0c8e7a88-e652-4075-afd2-6511d85af7a9">
 
