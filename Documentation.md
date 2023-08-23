@@ -1,6 +1,5 @@
-
-
 # [DappRadar🪙✨📈](https://dappradar.com)
+
 
 ### https://www.dappchaser.com
 
@@ -13,54 +12,39 @@
 <img width="1233" alt="Screen Shot 2023-08-16 at 3 40 55 PM" src="https://github.com/SC36-11-1/SC36-11-1/assets/133059820/39d7e33b-9773-4443-99f1-9276489acf68">
 <img width="1225" alt="Screen Shot 2023-08-16 at 3 42 04 PM" src="https://github.com/SC36-11-1/SC36-11-1/assets/133059820/43d89be6-137a-4338-aaaa-d9607246525d">
 
-<img width="1399" alt="Screen Shot 2023-08-17 at 9 15 05 PM" src="https://github.com/SC36-11-1/SC36-11-1/assets/133059820/fe1df300-f689-4172-a127-50af32a6c224">
-
-
 ![261136269-98c9af4f-e0f5-4284-91a2-d05400fbaaa5](https://github.com/SC36-11-1/-/assets/133059820/50296353-b384-482e-b7cc-3f9d2b1da4f5)
 
 ### https://buidlguidl.com
 ### https://solidity-by-example.org
 ### https://youtu.be/6dYc966_o4I
 
+<img width="1399" alt="Screen Shot 2023-08-17 at 9 15 05 PM" src="https://github.com/SC36-11-1/SC36-11-1/assets/133059820/fe1df300-f689-4172-a127-50af32a6c224">
 <img width="1403" alt="Screen Shot 2023-08-17 at 9 17 48 PM" src="https://github.com/SC36-11-1/SC36-11-1/assets/133059820/bb4bbcfa-9100-4ca8-a40b-584baea7ab1d">
-
 <img width="1045" alt="Screen Shot 2023-08-17 at 10 02 26 PM" src="https://github.com/SC36-11-1/SC36-11-1/assets/133059820/4d98aa51-a104-447f-80d7-b7fc79178eb2">
-
-
 
 ### https://support.mirror.xyz/hc/en-us/articles/6847458952852-Step-by-step-Editor-guide
 ### https://docs.ens.domains/v/governance/
 ### https://discuss.ens.domains
-
 
 <img width="2560" alt="Screen Shot 2023-08-17 at 10 40 28 PM" src="https://github.com/SC36-11-1/SC36-11-1/assets/133059820/a79f906f-c803-49d5-9c2a-7793e3f00776">
 
 ### https://youtu.be/yaa13eehgzo
 ### https://matplotlib.org/              Data Viz Artistic process explanation 
 ### https://blenderneuron.org/
-
 ### https://showcase.p5js.org/#/2022-All
-
 ### https://openprocessing.org/class/56049/
-
 ### https://buhitter.com/author/p5xjs
 
-
 <img width="1614" alt="Screen Shot 2023-08-18 at 4 18 46 PM" src="https://github.com/SC36-11-1/SC36-11-1/assets/133059820/0c8e7a88-e652-4075-afd2-6511d85af7a9">
-
 <img width="1636" alt="Screen Shot 2023-08-20 at 10 57 56 AM" src="https://github.com/SC36-11-1/SC36-11-1/assets/133059820/f9567dac-c5b6-4fb5-8412-233d20b9c0a8">
 
 ### https://www.tttc.ca/the-cortex/all/six-reasons-to-enter-the-2023-rookie-awards
 
 <img width="1637" alt="Screen Shot 2023-08-20 at 10 59 59 AM" src="https://github.com/SC36-11-1/SC36-11-1/assets/133059820/3764038c-45ac-4511-a314-e9ad8830e52b">
 <img width="1632" alt="Screen Shot 2023-08-20 at 11 00 17 AM" src="https://github.com/SC36-11-1/SC36-11-1/assets/133059820/935eaebc-bbf3-4c1d-9637-73e3922dc7f0">
-
 <img width="2560" alt="Screen Shot 2023-08-20 at 11 03 14 AM" src="https://github.com/SC36-11-1/SC36-11-1/assets/133059820/7027e95b-5a6b-41bf-97ee-5b207373f2cd">
-
 <img width="2560" alt="Screen Shot 2023-08-20 at 11 49 09 AM" src="https://github.com/SC36-11-1/Elias-Bitwayiki/assets/133059820/61af5e78-aaa0-4a60-9f87-a6f5765e2112">
-
 <img width="2560" alt="Screen Shot 2023-08-20 at 3 20 06 PM" src="https://github.com/SC36-11-1/Elias-Bitwayiki/assets/133059820/cd92c20d-86dd-43e3-940d-f47c9cf66205">
-
 
     GitHub Education 
 
@@ -68,7 +52,6 @@
 
 
 ![image](https://github.com/SC36-11-1/Elias-Bitwayiki/assets/133059820/44d3c2d3-f63a-417b-b29a-7dea5a4957f3)
-
 
 <img width="2560" alt="Screen Shot 2023-08-20 at 6 54 51 PM" src="https://github.com/SC36-11-1/Elias-Bitwayiki/assets/133059820/3a6f50af-fa1e-4515-8da2-f4975ca11b1b">
 <img width="2560" alt="Screen Shot 2023-08-20 at 6 55 58 PM" src="https://github.com/SC36-11-1/Elias-Bitwayiki/assets/133059820/d1f571b7-e70c-4c1e-aeb7-eb7a99d0122b">
