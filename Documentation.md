@@ -44,6 +44,7 @@
 
 ### https://buhitter.com/author/p5xjs
 
+<img width="1399" alt="Screen Shot 2023-08-17 at 9 15 05 PM" src="https://github.com/SC36-11-1/SC36-11-1/assets/133059820/fe1df300-f689-4172-a127-50af32a6c224">
 
 <img width="1614" alt="Screen Shot 2023-08-18 at 4 18 46 PM" src="https://github.com/SC36-11-1/SC36-11-1/assets/133059820/0c8e7a88-e652-4075-afd2-6511d85af7a9">
 
