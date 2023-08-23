@@ -1,6 +1,7 @@
 
 
-### [DappRadar](https://dappradar.com)
+# [DappRadar🪙✨📈](https://dappradar.com)
+
 ### https://www.dappchaser.com
 
 <img width="2560" alt="Screen Shot 2023-08-16 at 3 13 20 PM" src="https://github.com/SC36-11-1/SC36-11-1/assets/133059820/d4d3e7b6-5fae-4371-9149-0fd730e039b9">
