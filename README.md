@@ -1,4 +1,4 @@
-# [DappRadar🪙✨📈](https://dappradar.com)
+# [🥚💦🍑🀄👾🦇](https://y.at/🥚💦🍑🀄👾🦇)   [DappRadar🪙✨📈](https://dappradar.com) 
 
 
 ### https://www.dappchaser.com
