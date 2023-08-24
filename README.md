@@ -83,3 +83,6 @@ https://openprocessing.org/sketch/1886419
 - Every time he gets printed
 - Sales
 - Number of items Sold
+
+
+![mz5y15vT1tOM](https://github.com/SC36-11-1/-/assets/133059820/f73f3312-62cb-496a-9dce-7dbd772babf3)
