@@ -62,3 +62,24 @@ https://pastebin.com/AyG1zJsG
 https://openprocessing.org/sketch/1886419
 
 <img width="1228" alt="Screen Shot 2023-08-19 at 1 06 13 AM" src="https://github.com/SC36-11-1/SC36-11-1/assets/133059820/dda3c507-be1d-4a53-80d1-e9eb1a46a2ee">
+
+
+    So basically, this NFT is only going to be purchasable at a percentage. You’ll never be able to buy complete ownership. 
+    You’ll just able to buy points that translate from dollars 
+    towards ROI because 
+    printed on things that will make sales or be seen by people
+    
+    I need to make it into a watermark.☑️
+    I need to make it into a Vector. ☑️
+    I need to make it into a 3D element☑️
+    
+    like how many points of the tiger seal📈 
+    
+    so all of the proceeds go towards being able to put it onto Merch 
+    Points = Money = Popularity of design
+    Dynamic NFT See related information graph plot points of:
+
+- Each place it’s printed 
+- Every time he gets printed
+- Sales
+- Number of items Sold
