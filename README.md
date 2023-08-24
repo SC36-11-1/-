@@ -57,3 +57,6 @@
 <img width="2560" alt="Screen Shot 2023-08-20 at 6 55 58 PM" src="https://github.com/SC36-11-1/Elias-Bitwayiki/assets/133059820/d1f571b7-e70c-4c1e-aeb7-eb7a99d0122b">
 
 ![image](https://github.com/SC36-11-1/Elias-Bitwayiki/assets/133059820/8ca356b5-ab9a-4a32-bf65-c97c6873f501)
+https://openprocessing.org/sketch/1886419
+
+<img width="1228" alt="Screen Shot 2023-08-19 at 1 06 13 AM" src="https://github.com/SC36-11-1/SC36-11-1/assets/133059820/dda3c507-be1d-4a53-80d1-e9eb1a46a2ee">
