@@ -22,6 +22,8 @@
 <img width="1403" alt="Screen Shot 2023-08-17 at 9 17 48 PM" src="https://github.com/SC36-11-1/SC36-11-1/assets/133059820/bb4bbcfa-9100-4ca8-a40b-584baea7ab1d">
 <img width="1045" alt="Screen Shot 2023-08-17 at 10 02 26 PM" src="https://github.com/SC36-11-1/SC36-11-1/assets/133059820/4d98aa51-a104-447f-80d7-b7fc79178eb2">
 
+https://pastebin.com/AyG1zJsG
+
 ### https://support.mirror.xyz/hc/en-us/articles/6847458952852-Step-by-step-Editor-guide
 ### https://docs.ens.domains/v/governance/
 ### https://discuss.ens.domains
