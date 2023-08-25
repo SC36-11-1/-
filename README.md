@@ -98,21 +98,8 @@ https://chat.blockscan.com/start
 # https://www.slabs.one
 <img width="1705" alt="Screen Shot 2023-08-25 at 9 42 47 AM" src="https://github.com/SC36-11-1/-/assets/133059820/6f9d4fb7-5fb3-4c47-854e-f353567e3d22">
 
-    
-
-
-
-
-
-
-
-
-
-
-
-
-
-
+     
+![Screen Shot 2023-08-25 at 4 40 19 PM](https://github.com/SC36-11-1/-/assets/133059820/0db14712-a6f3-4aec-aa29-8c25b68bdf70)
 
 
 
