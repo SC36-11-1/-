@@ -10,6 +10,8 @@ User Experience Research Forced situation observation due to extinuating circums
   - Meditation saved me
   - 4chan educated me into a social jsutice warrior
   - Biohacking kept me healthy
+  - Medical Reports 🏥✨
+  - Govurnment Audits🔥✨
   - insomnia has won a lot of my battles
   - Respect and Communication skills is all you need
   - Roadmap Career coming soon
