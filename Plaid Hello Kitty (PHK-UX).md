@@ -1,12 +1,13 @@
 # [Hello Kitty x Hundreds](https://www.sanrio.com/products/hello-kitty-x-the-hundreds-snowman-hoodie) ✨ [Red Plaid Pajama Pants](https://www.ebay.co.uk/itm/311456893964?var=610502456505)
 
+## By Bitwayiki Elias (Elias Bitwayiki)
+
 ![b13qweqgyx681](https://github.com/SC36-11-1/-/assets/133059820/e0bdc7d1-edd0-4caa-8c21-f99a964f99c4)
 
 User Experience Research Forced situation observation due to extinuating circumstances leading to this type of documention flyer coming soon with QR-Code
   - Video
   - Audio
   - Documented Photoes Tickets & More
-
   - Meditation saved me
   - 4chan educated me into a social jsutice warrior
   - Biohacking kept me healthy
