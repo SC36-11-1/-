@@ -5,6 +5,15 @@ User Experience Research Forced situation observation due to extinuating circums
   - Audio
   - Documented Photoes Tickets & More
 
+  - Meditation saved me
+  - 4chan educated me into a social jsutice warrior
+  - Biohacking kept me healthy
+  - insomnia has won a lot of my battles
+  - Respect and Communication skills is all you need
+  - Roadmap Career coming soon
+  - wayfinding Lines
+  - Public Transport Hacks!!!
+
 September
   - left shoe toe rip - organic / forced
   -   Hospital request for social worker muddled with english request needing to by hyper defined
