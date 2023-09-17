@@ -36,4 +36,6 @@ reason why i always interact in regards to relationships is online due to person
     Sheridan rug pull education but still plans to continue Halton Police + Halton Memorial Hospital + Sheridan all have corrections to make in my regards to education 
 
     due to the Project initially started in the 98 resident having to due with crypto or CERB money or a rug was pulled and people are being made to believe i am owner of the account or have some controle when its someone playing musical chairs with Online ODSP files to manipulate situations and identities I ahve doubled down and have been contiueing to work on both projects UX and Crpyto To finance each other while drawing attention from one to another
+
+    IF someone proveds food for you by stealing from people who already want to use that money to buy food with you how is the thief better than the person with honest intentions 
     
