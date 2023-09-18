@@ -4,7 +4,9 @@
 
 ![b13qweqgyx681](https://github.com/SC36-11-1/-/assets/133059820/e0bdc7d1-edd0-4caa-8c21-f99a964f99c4)
 
-User Experience Research Forced situation observation due to extinuating circumstances leading to this type of documention flyer coming soon with QR-Code
+### User Experience Perceptual Research 
+
+Forced situation observation due to extinuating circumstances leading to this type of documention flyer coming soon with QR-Code
   - Video
   - Audio
   - Web Development
