@@ -8,16 +8,13 @@ User Experience Research Forced situation observation due to extinuating circums
   - Video
   - Audio
   - Documented Photoes Tickets & More
-  - Meditation saved me
-  - 4chan educated me into a social jsutice warrior
-  - Biohacking kept me healthy
   - Medical Reports 🏥✨
   - Govurnment Audits🔥✨
-  - insomnia has won a lot of my battles
-  - Respect and Communication skills is all you need
   - Roadmap Career coming soon
   - wayfinding Lines
   - Public Transport Hacks!!!
+
+  - Meditation saved me, 4chan educated me into a social jsutice warrior, Biohacking kept me healthy, insomnia has won a lot of my battles, Respect and Communication skills is all you need
 
 September
   - left shoe toe rip - organic / forced
@@ -42,5 +39,15 @@ reason why i always interact in regards to relationships is online due to person
 
     due to the Project initially started in the 98 resident having to due with crypto or CERB money or a rug was pulled and people are being made to believe i am owner of the account or have some controle when its someone playing musical chairs with Online ODSP files to manipulate situations and identities I ahve doubled down and have been contiueing to work on both projects UX and Crpyto To finance each other while drawing attention from one to another
 
-    IF someone proveds food for you by stealing from people who already want to use that money to buy food with you how is the thief better than the person with honest intentions 
+    IF someone proveds food for you by stealing from people who already want to use that money to buy food with you how is the thief better than the person with honest intentions, if the enemy of my enemy is my friend sooner or later you meet an someone who becomes an enemy or is already an enemy of your friend or or your enemies enemie making every 4th person your friend stupid logic gate, Lying is so stupid. Who needs to grow im already grown since i was imported mans tryna act like they can claim educating me by lying but knowing enough to keep lying consistantly buying time to steal project ideas to sell Tangerine Card LOL too much psychic imprints on things the Kool-aid is supposed to be controled by me not some random buy who gets himself drunk by keeping me selfishly in an internet private server as a slave instead of master with unlimited permissions who kows how many ideas were repressed.
     
+trying to get people mad at me for his own racist perceptions of the world why is it so important to black people im treated stereotypically but when i do everything correctly and get accepted im looked at as if i did something wrong when communication is all there is...no one would believe my relationship with my mom is bad because jealously due to relationship levels of raport with siblings i have not shared with my mom on the same level due to a language barrier issue projected on to me who the fuck would believe that its more believeable i was hit with lightning .. the barret center people already know this idek 
+
+My rising sun moleskin pencil idea INDIGO WORKBOOK was stolen but also secret honey pot (Same colour as honey) with a bunch of pencil entries you wouldnt be able to decrypt without assistance since im technically still employed thats a company mad on my behalf idk what they want safe to assume everything not just my work 
+
+Also if my initial crypto project went off i would of been able to supprot like 3 families but obviously spoken with complete transparency im ace and way too open minded if you havent noticed to the point its an issue. racist people hate stereotypical people who fit the discription of negative stereotypes i had the time to talk to a dude with a giant swastica  burned into his chest LOL obvi racist but didnt mind me since questioned and obviously modern kind hearted thinking why is this so hard read the book anyway fuck the cover 
+
+DiagoBar Work Hours Inspired me to create a type of Fiat for my coin Narating my Project as a develop it inside a different research project (if every homeless person self employed as a user experience subject they would get off the street fast just needs to be automated for people differently intelegent crypto thinking different currencies like Blood Donation, Time spent in locations, time spent doing work, ect... working on it since public security cameras on the street validate location and identity)
+
+Birth of my Psychic Crypto Tiger token 
+
