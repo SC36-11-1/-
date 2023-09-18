@@ -7,11 +7,17 @@
 User Experience Research Forced situation observation due to extinuating circumstances leading to this type of documention flyer coming soon with QR-Code
   - Video
   - Audio
+  - Web Development
+  - Internet Personality User Experience
   - Documented Photoes Ticket violations & More
   - Hospital Trips x Medical Reports 🏥✨
   - Govurnment Audits🔥✨
-  - Roadmap Career coming soon
-  - wayfinding Lines
+  - Roadmap:
+    - Crypto Project Roadmap coming soon
+    - Identity Roadmap Residency + e-residency Coming soon
+    - LLLP Education Roadmap Coming soon
+  - Experiential Design
+    - Pre-emptive wayfinding Lines
   - Public Transport Hacks!!!
 
   - Meditation saved me, 4chan educated me into a social jsutice warrior, Biohacking kept me healthy, insomnia has won a lot of my battles, Respect and Communication skills is all you need
