@@ -7,8 +7,8 @@
 User Experience Research Forced situation observation due to extinuating circumstances leading to this type of documention flyer coming soon with QR-Code
   - Video
   - Audio
-  - Documented Photoes Tickets & More
-  - Medical Reports 🏥✨
+  - Documented Photoes Ticket violations & More
+  - Hospital Trips x Medical Reports 🏥✨
   - Govurnment Audits🔥✨
   - Roadmap Career coming soon
   - wayfinding Lines
