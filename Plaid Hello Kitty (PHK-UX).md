@@ -37,6 +37,39 @@ Social issue stated with initial psychologist to be reasonable given the circums
 
 reason why i always interact in regards to relationships is online due to personal and public safety of other its just bettre and less invasive to peoples space and life if you let them choose to interact while letting them see you in public working 
 
+UX DESIGN RESEARCH talk about how visual representation is stronger than whats on the inside unseen vs seen ideologies of people appearances QR code to paper flyer 2nd page academic prowess and claim against school triOS administration 
+
+Using a public known ipad with all information posted on my pastebin. Opening myself up to hacking having previous experience with malicious cyber attacks and childhood experience being “bait” “carrot” for police operations against child molesters and predators, my teen life was filled with similar instances of targeting for the purpose of creating an opportunity  
+
+ I have turned myself and my devices into Social engineering honey pot. Due to the level of monitoring i have forcefully subject to as a result of legal action taken against those i felt had wronged me i inevitably set myself on a thin path a “slack line” 
+
+Being used an accessory to achieve certain ends i leaned into the role that was being labelled and painted on me “The shiniest fishing lure”
+
+Judging a book by its cover
+same clothes everyday= 
+Autistic
+Mentally ill
+Poor
+Lazy/Un hygenic
+Trust fund Kid
+Drug Dealer
+Protective custody witness/victim
+Unfortunate situation circumstance
+Researcher
+Undercover
+
+Varying types of harassment, equate certain situations being more prominent consistent theft of devices from the bag causing financial strain from repetitive purchase. Wow on social assistance with a set budget means I spend more and more recuperating a lost/stolen item inevitably subtracting funds from other budgeted areas, such as entertainment and food and transport.
+Consistent technical difficulties with inventing machines add up and contribute to multiple small instances over time, making it more difficult to notice it’s a large song it totals overtime. regardless of education and skills with budgeting, does not suffice through prolonged harassment, unexpended expenditures are as follow:
+Unexpected trips
+Item replacement 
+Coping, meals/snacks
+Just bad stuff on my mind because I have to deal with a difficult situation for no reason and having fun with it means I’m hurting myself and that means upsetting someone that cares about me but how am I going to deal with the situation? OK whoever the whatever, which is dude, magic is fucking annoying. Why do bug me to fly up my nose hello
+
+Documented dissent Sunday, August 27,2023.
+
+
+Release Date Today Follow up Experience Date and Time Stamped 
+
     Obeservation due to level slave to bed ODSP patients with people who speak for them no wonder they make it so they can speak for you and make it seem as if your aggressive and incappable of composure. Renting an appartment is expensive but not a room and I only have an issue with people jeapordizing my job security because they need me to stay on disability to be able to keep speaking for me while i work on projects always slowed down by conversations already predispositioned with negative outcomes where im not taken seriously enough 98 Sussex Seems to be the ODSP file that was originally filled out prior to mine was for a bed ridden faceless Bitwayiki Elias(since needed sin to be legit) since i blew that the only avenue he had left to challenege me is psychology but ive been tested since i painted with blood and learned how shitty human brains are 
 
 
