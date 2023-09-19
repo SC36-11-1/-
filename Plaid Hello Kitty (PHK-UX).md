@@ -46,17 +46,17 @@ Using a public known ipad with all information posted on my pastebin. Opening my
 Being used an accessory to achieve certain ends i leaned into the role that was being labelled and painted on me “The shiniest fishing lure”
 
 Judging a book by its cover
-same clothes everyday= 
-Autistic
-Mentally ill
-Poor
-Lazy/Un hygenic
-Trust fund Kid
-Drug Dealer
-Protective custody witness/victim
-Unfortunate situation circumstance
-Researcher
-Undercover
+- same clothes everyday= 
+- Autistic
+- Mentally ill
+- Poor
+- Lazy/Un hygenic
+- Trust fund Kid
+- Drug Dealer
+- Protective custody witness/victim
+- Unfortunate situation circumstance
+- Researcher
+- Undercover
 
 Varying types of harassment, equate certain situations being more prominent consistent theft of devices from the bag causing financial strain from repetitive purchase. Wow on social assistance with a set budget means I spend more and more recuperating a lost/stolen item inevitably subtracting funds from other budgeted areas, such as entertainment and food and transport.
 Consistent technical difficulties with inventing machines add up and contribute to multiple small instances over time, making it more difficult to notice it’s a large song it totals overtime. regardless of education and skills with budgeting, does not suffice through prolonged harassment, unexpended expenditures are as follow:
