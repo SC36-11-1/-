@@ -4,7 +4,7 @@
 
 ![b13qweqgyx681](https://github.com/SC36-11-1/-/assets/133059820/e0bdc7d1-edd0-4caa-8c21-f99a964f99c4)
 
-### User Experience Perceptual Research 
+### User Experience Perceptual Research in Oakville Ontario Sheridan College
 
 Forced situation observation due to extinuating circumstances leading to this type of documention flyer coming soon with QR-Code
   - Video
@@ -21,6 +21,8 @@ Forced situation observation due to extinuating circumstances leading to this ty
   - Experiential Design
     - Pre-emptive wayfinding Lines
   - Public Transport Hacks!!!
+    
+![IMG_3397](https://github.com/SC36-11-1/-/assets/133059820/34bf31fb-3bac-4d6a-9706-db2c7af30722)
 
   - Meditation saved me, 4chan educated me into a social jsutice warrior, Biohacking kept me healthy, insomnia has won a lot of my battles, Respect and Communication skills is all you need
 
