@@ -107,3 +107,11 @@ I hope I die, because that blows up everything and it's the most honest death. I
 they have to keep pretending not to see me because the excuses that I wasted someone's time when I have always just stayed in my room and had other people Lie about everything while I stay working by myself not interacting with anyone while everyone knows I don't have new friends and I'm always online I left dirty looks because it's reinforced with the probability of an extremely sad outcome that I want to have it so I can just get it next version of this dumb game
 
 I have to jump through the stupid hoops I guess it'll just keep being more stupid until I get fed up with it, and just let myself fall victim to suicidal ideation and tendencies but then again, that's just breaking the initial promise of not killing myself, so I don't know we'll just have to keep making public posts about our activities in regards to 135 Mary St., good Shepherd Centre turning us down legitimately without following any type of procedure and making it seem as of speaking publicly outside changes anything when it's just people doing whatever they want me not caring because I know better 
+
+
+
+
+![IMG_3398](https://github.com/SC36-11-1/-/assets/133059820/120b6c67-fc3d-41db-9bd9-f35334ef588f)
+
+
+you're hoping I get tired of trying again that's what I'm waiting for myself as well that's the day you get to say I killed myself and you'll bother me until then until I go to the court for my pardon so that all these private investigations and secret investigations get fucked
