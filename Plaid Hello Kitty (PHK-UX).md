@@ -111,7 +111,7 @@ I have to jump through the stupid hoops I guess it'll just keep being more stupi
 
 
 
-![IMG_3398](https://github.com/SC36-11-1/-/assets/133059820/120b6c67-fc3d-41db-9bd9-f35334ef588f)
+    ///![IMG_3398](https://github.com/SC36-11-1/-/assets/133059820/120b6c67-fc3d-41db-9bd9-f35334ef588f)
 <img src="https://github.com/SC36-11-1/-/assets/133059820/120b6c67-fc3d-41db-9bd9-f35334ef588f" width="370" height="370">
 
 
