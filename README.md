@@ -42,6 +42,7 @@ https://pastebin.com/AyG1zJsG
 
 ### https://www.tttc.ca/the-cortex/all/six-reasons-to-enter-the-2023-rookie-awards
 
+
 <img width="1637" alt="Screen Shot 2023-08-20 at 10 59 59 AM" src="https://github.com/SC36-11-1/SC36-11-1/assets/133059820/3764038c-45ac-4511-a314-e9ad8830e52b">
 <img width="1632" alt="Screen Shot 2023-08-20 at 11 00 17 AM" src="https://github.com/SC36-11-1/SC36-11-1/assets/133059820/935eaebc-bbf3-4c1d-9637-73e3922dc7f0">
 <img width="2560" alt="Screen Shot 2023-08-20 at 11 03 14 AM" src="https://github.com/SC36-11-1/SC36-11-1/assets/133059820/7027e95b-5a6b-41bf-97ee-5b207373f2cd">
@@ -109,9 +110,11 @@ https://chat.blockscan.com/start
 
 
 
+![IMG_4455](https://github.com/SC36-11-1/-/assets/133059820/8f8a7c25-bc01-42a5-84c2-7ab652f3c768)
 
 
 
+![IMG_5768](https://github.com/SC36-11-1/-/assets/133059820/5f2e6e93-2d6c-4fc1-9169-e112bd4a7ee4)
 
 
 
