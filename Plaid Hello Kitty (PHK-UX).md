@@ -52,6 +52,7 @@ Judging a book by its cover
 - Autistic
 - Mentally ill
 - Poor
+- Homeless
 - Lazy/Un hygenic
 - Trust fund Kid
 - Drug Dealer
@@ -113,3 +114,48 @@ I have to jump through the stupid hoops I guess it'll just keep being more stupi
 
 
 you're hoping I get tired of trying again that's what I'm waiting for myself as well that's the day you get to say I killed myself and you'll bother me until then until I go to the court for my pardon so that all these private investigations and secret investigations get fucked
+
+Hello Kitty Update
+-Hire someone to assist manage / organize data
+-iMessage Diary Transcribe 
+
+Categories
+	Lifestyle
+		Minimalist
+		Agnostic
+		Druid 
+			(grow to burn *Knowledge is Growth)
+		Martyr
+		Initiates of the *Flame* 
+			(Fire of youth kindling of the soul ideas, projects, passions)
+	Tech
+		Apple First (Primarily for community and Event Presentations)
+	Clothing & Accessories + Footwear
+		Backpack Materials 
+			( Neoprene Tech Polyester ) 
+		LuluLemon (Sweat and stretch) 
+		Capsule Collection +Layers 
+			Undershirt	
+			Underwear / Long-johns
+			Longsleeve
+			Sweater
+			Button-Up Flannel / Wool
+			Material Long jacket
+			Socks
+			Gloves
+			Hat
+			2 Sweat Suits Hoodie + Pants
+	Health / Exercise
+		Yoga
+		Meditation (Mindfullness)
+		Walking
+	Food
+		Items always 🆕 or Coupon deals or Daily Specials
+	Locations 
+Spiritual Architecture / Way finding information  
+		Transit stations
+		Airports
+		Hospitals
+		Libraries
+		Restaurants
+
