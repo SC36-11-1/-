@@ -114,6 +114,8 @@ I have to jump through the stupid hoops I guess it'll just keep being more stupi
 
 <img src="https://github.com/SC36-11-1/-/assets/133059820/3d3711f1-1ab9-4437-a5b6-d15ad64bcb8f" width="370" height="370">
 
+<img src="https://github.com/SC36-11-1/-/asse ts/133059820/45802871-7701-4426-878f-28c0a51485bb" width="370" height="370">
+
 you're hoping I get tired of trying again that's what I'm waiting for myself as well that's the day you get to say I killed myself and you'll bother me until then until I go to the court for my pardon so that all these private investigations and secret investigations get fucked
 
 Hello Kitty Update
