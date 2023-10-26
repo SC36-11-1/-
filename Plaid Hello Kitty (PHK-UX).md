@@ -112,7 +112,7 @@ I have to jump through the stupid hoops I guess it'll just keep being more stupi
 
 <img src="https://github.com/SC36-11-1/-/assets/133059820/120b6c67-fc3d-41db-9bd9-f35334ef588f" width="370" height="370">
 
-![IMG_3389](https://github.com/SC36-11-1/-/assets/133059820/3d3711f1-1ab9-4437-a5b6-d15ad64bcb8f)
+<img src="https://github.com/SC36-11-1/-/assets/133059820/3d3711f1-1ab9-4437-a5b6-d15ad64bcb8f" width="370" height="370">
 
 you're hoping I get tired of trying again that's what I'm waiting for myself as well that's the day you get to say I killed myself and you'll bother me until then until I go to the court for my pardon so that all these private investigations and secret investigations get fucked
 
