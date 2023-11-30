@@ -313,6 +313,36 @@ Monday 13th -
 
 Sunday 12ff - @5:12PM Large Philly Cheese + Cookies 
 
+### My Chart Medical Corrections* Ottawa
+October 23rd
+Family Physician: Dr Stallwood 
+October 27th
+- Persistent Debt Fraud issues and social problems with Bank causing inability to purchase food
+- Just wandering around = In Ottawa for business Government Documentation acquisition. Immediately went to Ottawa Public library registered for Indeed Online Learning for productivity while awaiting paperwork  
+- 
+
+- Head Injury = Progressive concussions from lightning strike 
+- Hearing loss = Tinnitus from lightning strike 
+- Attempted Suicide = Cutting myself to ground myself due to intensity of reality
+Sister called policed claiming suicide, Chronic pain condition due to lightning strike at age 5 and PTSD from war suicidal ideation are a life constant scenarios are imagined into ridiculousness. OCD reinforced Promise to a therapist never to attempt only to cut! 
+- Sleep difficulties = Insomnia diagnosed at age 10
+- Substance abuse = Prescription Marijuana highly Structured medication routine before after meals 1:1 THC/CBD 1g Limit Daily 
+- visual impairment = Impairment to Right eye Damaged Corina No impairment to left eye, Diagnosed Visual Stress condition Irelen syndrome required to wear prescription tinted glasses slight stigmatism 
+- 
+Medical History 
+- Lightning Strike survivor 
+
+
+Conditions Reported by Dr. Soreni January 14, 2021 
+SJHH St. Joseph’s Healthcare Hamilton 
+- Fear of open places 
+- Fear of social Situations 
+- Marijuana use
+- Mood changes
+- Panic Disorder
+- PTSD
+
+
 
 
 
