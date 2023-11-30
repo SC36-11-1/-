@@ -61,15 +61,15 @@ Judging a book by its cover
 - Researcher
 - Undercover
 
-Varying types of harassment, equate certain situations being more prominent consistent theft of devices from the bag causing financial strain from repetitive purchase. Wow on social assistance with a set budget means I spend more and more recuperating a lost/stolen item inevitably subtracting funds from other budgeted areas, such as entertainment and food and transport.
-Consistent technical difficulties with inventing machines add up and contribute to multiple small instances over time, making it more difficult to notice it’s a large song it totals overtime. regardless of education and skills with budgeting, does not suffice through prolonged harassment, unexpended expenditures are as follow:
-Unexpected trips
-Item replacement 
-Coping, meals/snacks
-Just bad stuff on my mind because I have to deal with a difficult situation for no reason and having fun with it means I’m hurting myself and that means upsetting someone that cares about me but how am I going to deal with the situation? OK whoever the whatever, which is dude, magic is fucking annoying. Why do bug me to fly up my nose hello
-
+Varying types of harassment, 
+	equate certain situations being more prominent consistent theft of devices from the bag causing financial strain from repetitive purchase. Wow on social assistance with a set budget
+ means I spend more and more recuperating a lost/stolen item inevitably subtracting funds from other budgeted areas, such as entertainment and food and transport. Consistent technical difficulties with inventing machines add up and contribute to multiple small instances over time, making it more difficult to notice it’s a large song it totals overtime. regardless of education and skills with budgeting, does not suffice through prolonged harassment, unexpended expenditures are as follow:
+- Unexpected trips
+- Item replacement
+- Coping,
+- meals/snacks
+- 
 Documented dissent Sunday, August 27,2023.
-
 
 Release Date Today Follow up Experience Date and Time Stamped 
 
@@ -93,7 +93,7 @@ Also if my initial crypto project went off i would of been able to supprot like 
 
 DiagoBar Work Hours Inspired me to create a type of Fiat for my coin Narating my Project as a develop it inside a different research project (if every homeless person self employed as a user experience subject they would get off the street fast just needs to be automated for people differently intelegent crypto thinking different currencies like Blood Donation, Time spent in locations, time spent doing work, ect... working on it since public security cameras on the street validate location and identity)
 
-Birth of my Psychic Crypto Tiger token 
+### Birth of my Psychic Crypto Tiger token 
 
 [Rarible - Tiger Seal](https://rarible.com/token/0x60f80121c31a0d46b5279700f9df786054aa5ee5:938557)
 
@@ -118,11 +118,11 @@ I have to jump through the stupid hoops I guess it'll just keep being more stupi
 
 you're hoping I get tired of trying again that's what I'm waiting for myself as well that's the day you get to say I killed myself and you'll bother me until then until I go to the court for my pardon so that all these private investigations and secret investigations get fucked
 
-Hello Kitty Update
--Hire someone to assist manage / organize data
--iMessage Diary Transcribe 
+### Hello Kitty Update
+- Hire someone to assist manage / organize data
+- iMessage Diary Transcribe 
 
-Categories
+	Categories
 	Lifestyle
 		Minimalist
 		Agnostic
@@ -154,11 +154,165 @@ Categories
 		Walking
 	Food
 		Items always 🆕 or Coupon deals or Daily Specials
-	Locations 
+	Locations
+ 
 Spiritual Architecture / Way finding information  
-		Transit stations
-		Airports
-		Hospitals
-		Libraries
-		Restaurants
+
+- Transit stations
+- Airports
+- Hospitals
+- Librarie
+- Restaurants
+
+### OTTAWA !!!
+
+Ottawa 7-1 Eccles
+Temporary Housing 
+
+List of complaints:
+Infestations
+	Cockroach
+	Bedbugs
+Kitchen 
+	Fridge	
+	Utilities 
+		Microwave (public or personal)
+Utilities
+	@$780
+	No internet
+	Heat Cuts Out middle of the night
+Bathroom size inadequate for my stature 
+
+Money Mart 
+Sunday 12@13:30 PM 
+Friday 17@18:00 (Ottawa Montfort Hospital)
+-Money withheld without proper paperwork stating and outlining details of arrangement
+-Franchised location Policy manipulation 
+69 Montreal Rd
+Vanier ON K1L 6E8
+Canada
+NATIONAL MONEY MART
+Store 0043
+Date: 2023-11-12 19-20:69
+
+
+
+
+
+
+Wednesday November 15 2023
+
+BMO card ending with (2786)
+Library provided 
+
+Bank Attendant pretended to know me made me feel uncomfortable left with my bank or a bank card with a password that was unsuccessfully entered but attempted to continue business as if it was normal
+BMO card ending with (4611)
+BMO card ending with (4549,5494,5429,4529)
+
+
+Food Bank
+2:00PM-2:10PM BMO 
+2:20PM Library
+
+507 Centre Issues
+	507 Bank St Food bank
+
+Centre 507
+507 Bank St
+Ottawa, ON, K2P 1Z4
+Canada
+Food handler served 
+Scrambled eggs
+- Cold 
+- Wet / Soggy
+- No apron 
+- No hairnet
+- No gloves 
+- Who knows how long food was held arrived @9:10AM - 9:15AM
+- Arrived @ Library 9:45AM
+
+
+
+Ottawa General Hospital (+x)
+Ottawa Montfort Hospital (2x)
+
+Ottawa Queensway Carleton Hospital (1x)
+Thursday November 16th 
+Straderd Rd @ Esso Circle K 
+Walked From 7-Eccles st @08:00 to Esso Circle K @01:40
+
+Money Mart Destination
+	GPS - Issues (embassy coordinate issues first instance)
+	Phone Battery no charged left with less than 50%
+	Sensory Issues Sun no cloud cover in line of light all day
+	Lost / Stolen Medication no Vape pen
+	
+OTTAWA GENERAL HOSPITAL(+x)
+Social Workers 
+	Alex Madore MSW, RSW
+	Vankatesh Thiruganasambandamoorthy
+	Caitlin Shanahan
+
+Debt issues since October 25th Found out at Ottawa General Hospial
+Debt issues Continues till November 17th 2023
+Debt issues Resolved November 17th
+
+
+ODSP 
+worker change Provided November 3rd 
+	Issues with Payment 
+(October cheque Not November)
+delayed case transferred  
+
+
+	Hygiene Issues 
+	Distance problems with Debt Issues + 
+	MoneyMart Not following Policy
+		Civil liberties with money being withheld no paperwork or policy provided in regards to temporary money withhold ment 
+
+
+
+![After Visit Summary](https://github.com/SC36-11-1/-/assets/133059820/ac379421-1553-4b2c-9e8f-4eb0fa42aad0)
+
+![IMG_0693](https://github.com/SC36-11-1/-/assets/133059820/09eff5c3-d47f-495e-bbd0-2471af93e937)
+
+![Dispesitica and](https://github.com/SC36-11-1/-/assets/133059820/ad8b99b8-3919-42fd-ad1a-95564e9e66d9)
+
+![IMG_0694](https://github.com/SC36-11-1/-/assets/133059820/89e0de3a-b0aa-4f2f-a010-e49faaaa64c5)
+
+
+
+Sunday left Toronto Station @5:58 November 22nd
+
+Checked in: Monday October 22 @3:33AM 
+wait time for doctors: 
+5 -7 hours doctor wait time
+
+BMO
+Address: 269 Laurier Ave W, Ottawa, ON K1P 5J9
+(613) 564-6424
+
+![DR22691](https://github.com/SC36-11-1/-/assets/133059820/1c5185fe-7d50-4278-9ad7-4f0aab5ba867)
+
+
+![IMG_0578](https://github.com/SC36-11-1/-/assets/133059820/90e9a00d-593a-4528-895e-0abe90dc0ceb)
+
+
+### Meals
+Saturday 18th - (Nothing)
+
+Friday 17th - (Nothing)
+
+Thursday 16th - @Hospital 2PM Egg sandwich + muffin + water 
+
+Wednesday 15th - @9:20 -Croissant
+
+Tuesday 14th - @09:00 Large Hawaiian Chicken (725 Somerset St W, Ottawa ON K1R 6P7 Canada)+ 2L Pepsi (Deleted Pepsi receipt 676 Somerset St, Ottawa ON K1R 6P4 Canada)
+
+Monday 13th -
+
+Sunday 12ff - @5:12PM Large Philly Cheese + Cookies 
+
+
+
 
