@@ -352,6 +352,8 @@ SJHH St. Joseph’s Healthcare Hamilton
 ![IMG_0840](https://github.com/SC36-11-1/-/assets/133059820/d22809ce-6679-44e4-8c24-be106e774b4c)
 
 ### BioHacking
+https://chat.openai.com/share/36a74346-d561-4fbc-811f-ca257ab0ac8
+
 1. Nutrition
     1. Charcoal infused 
     2. Mostly Liquid Diet
@@ -419,8 +421,6 @@ Water Retention Management
     3. Watermelon
 7. Manage Stress
 8. Hydrate Consistently 
-
-
 
 
 
