@@ -351,6 +351,76 @@ SJHH St. Joseph’s Healthcare Hamilton
 
 ![IMG_0840](https://github.com/SC36-11-1/-/assets/133059820/d22809ce-6679-44e4-8c24-be106e774b4c)
 
+### BioHacking
+1. Nutrition
+    1. Charcoal infused 
+    2. Mostly Liquid Diet
+2. Sleep Optimization
+    1. Insomnia 
+3. Exercise And Movement
+    1. 25 reps at 4 sets Bench press 2x45lb Baseline
+4. Stress Management
+    1. Level 10 Mental Pliancy
+5. Hydration
+    1. Coconut Oil + Weed Oil for water retention
+6. Social Connection
+    1. Social Engineering
+    2. Customer Service
+        1. Bartending
+        2. Retail
+        3. Internet Anons
+7. Mental Well-Being
+    1. Meditation
+    2. Yoga
+    3. Video Games / Art 
+8. Supplementation (need more data)
+9. Technology Intergration
+    1. Therabody Eye Mask
+    2. Colour Tinted Prescription Glasses
+10. Genetic testing
+    1. Hospital Generalized Testing
+    2. Blood Donation
+    3. 23&Me  
+
+### Water Retention 
+1. Daily water intake
+    1. 8ounces daily 
+2. Listen to Body
+3. Hydrating Foods
+    1. Fruits 
+        1. Oranges 
+        2. Strawberries
+    2. Vegetables
+        1. Cucumber
+        2. Celery
+4. Consistent Hydration
+    1. Though day not at once
+5. Electrolyte Balance
+    1. Sodium
+    2. Potassium
+    3. Magnesium
+    4. Electrolytes
+6. Limit Dehydrating Substances
+    1. Caffeine
+    2. Alcohol
+
+Water Retention Management
+1. Balanced Sodium Intake
+2. Regular Exercise
+3. Elevate Legs
+4. Compression Garments
+5. Potassium Rich Foods
+    1. Banana
+    2. Leafy Greens
+    3. Potatoes
+6. Hydration and Diuretic Food
+    1. Cucumber 
+    2. Celery
+    3. Watermelon
+7. Manage Stress
+8. Hydrate Consistently 
+
+
 
 
 
