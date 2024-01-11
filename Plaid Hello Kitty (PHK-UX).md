@@ -440,7 +440,7 @@ January 7th 2024 - Entry for 🟩
 January 8th 2024 - Entry for 🟩
 
 January 11th 2024 - Update with Eccles information and Health Information 
-- Medula Oblangata
+- Facial skin 
 - Stomach Purger
 - Medication Theft
 - Hygine Issues due to utilities proved
