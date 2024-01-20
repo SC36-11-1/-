@@ -445,3 +445,74 @@ January 11th 2024 - Update with Eccles information and Health Information
 - Medication Theft
 - Hygine Issues due to utilities proved
 - 
+
+
+
+
+
+
+1.teach 
+
+harassment
+abuse
+confusion
+manipulation
+delay
+denial of service
+ridicule 
+embarassment
+underestimated intellegence
+
+introduction
+Main Points
+Conclusion
+
+Creating a narrative script involves careful planning and organization to ensure that you cover all the necessary topics effectively. Here's a step-by-step guide to help you prepare a narrative script:
+
+1. **Define Your Purpose:**
+   - Clearly identify the purpose of your narrative script. What message or information do you want to convey? Understanding your goal will guide the structure and content of your script.
+
+2. **Outline the Key Topics:**
+   - List the main topics you want to cover in your script. These could be events, themes, or concepts that contribute to your overall message. Ensure these topics align with your purpose.
+
+3. **Organize the Structure:**
+   - Divide your script into sections, such as introduction, main points, and conclusion. Each section should flow logically from one to the next. Use headings or markers for different topics to stay organized.
+
+4. **Create a Strong Introduction:**
+   - Capture your audience's attention from the beginning. Clearly state your purpose and introduce the main topics you'll be covering. Set the tone for your narrative.
+
+5. **Develop Each Topic:**
+   - Dedicate a section of your script to each key topic. Provide relevant details, examples, and anecdotes to illustrate your points. Ensure a smooth transition between topics.
+
+6. **Include Supporting Evidence:**
+   - If applicable, incorporate data, quotes, or references to support your narrative. This adds credibility to your script and helps reinforce your message.
+
+7. **Maintain a Consistent Tone:**
+   - Keep a consistent tone throughout your script. Whether it's formal, informal, serious, or light-hearted, maintaining a consistent tone enhances the overall cohesiveness of your narrative.
+
+8. **Create Transitions:**
+   - Use transitions between topics to ensure a smooth flow. This could be a sentence that links one idea to the next or a brief summary of what was covered.
+
+9. **Summarize and Conclude:**
+   - Recap the main points and restate your purpose in the conclusion. Make sure your audience leaves with a clear understanding of your message.
+
+10. **Practice and Revise:**
+    - Practice reading your script aloud. This helps you identify any awkward phrasing, unclear points, or missing information. Revise as needed to improve clarity and coherence.
+
+11. **Seek Feedback:**
+    - Share your script with others and seek constructive feedback. Others may provide valuable insights and help you refine your narrative.
+
+12. **Edit for Clarity and Conciseness:**
+    - Review your script for unnecessary details or repetitions. Aim for clarity and conciseness to keep your audience engaged.
+
+Remember, adapting your script based on your audience's needs and preferences is crucial. Be receptive to feedback and make adjustments accordingly.
+
+"13 Reasons Why" is a television series that originally premiered on Netflix in March 2017. The show, created by Brian Yorkey, is based on the 2007 novel of the same name by Jay Asher. It gained significant attention and sparked discussions due to its exploration of sensitive and controversial topics, particularly teenage suicide, bullying, and sexual assault.
+
+The narrative revolves around the story of Hannah Baker, a high school student who dies by suicide. Before her death, Hannah records a series of cassette tapes explaining the reasons why she took her own life. Each tape is dedicated to a specific person who played a role in her decision. The show follows Clay Jensen, a classmate who receives the tapes, as he tries to understand the events leading to Hannah's suicide.
+
+While the series aimed to address important issues such as mental health, bullying, and sexual assault, it also faced criticism for its graphic depiction of suicide and the potential impact it might have on vulnerable viewers. Mental health professionals, educators, and organizations expressed concerns about the show's portrayal of suicide and the potential for it to glamorize or romanticize self-harm.
+
+The controversy surrounding the show prompted Netflix to add content warnings and resources related to mental health before episodes featuring explicit scenes. The discussion around "13 Reasons Why" also contributed to a broader conversation about the responsibility of media in addressing sensitive topics and the potential impact on viewers.
+
+It's important to note that my information is accurate up until January 2022, and there may have been developments or additional seasons released since then.
