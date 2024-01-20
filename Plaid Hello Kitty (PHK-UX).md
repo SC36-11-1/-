@@ -451,21 +451,34 @@ January 11th 2024 - Update with Eccles information and Health Information
 
 
 
-1.teach 
-
-harassment
-abuse
-confusion
-manipulation
-delay
-denial of service
-ridicule 
-embarassment
-underestimated intellegence
-
-introduction
-Main Points
-Conclusion
+1. to teach and educate while informing
+2. harassment
+   abuse
+   confusion
+   manipulation
+   delay of services 
+   denial of service
+   ridicule
+   embarassment
+   underestimated intellegence
+3. Introduction
+   Main Points
+   Conclusion
+4. Topics
+   - Child hood History (Pre Hamilton)
+   - Education (Post Hamilton)
+   - Ontario Works 
+   - Work life (Hamilton - Burlington - Hamilton)
+   - Username Gaming Handle
+   - Criminal Issues
+   - College triOS
+   - ODSP Medical Pursuit
+   - Labour Board Ontario / Small Claims / Civil Claims
+   - Lanlord & Tenant Bored LTB Sussy
+   - AirBnB issues of assult medical cover up with painkillers
+   - Oakville Sheridan / Memorial Hospital Issues
+   - Hamilton St. Josephs Medical Chart Review + Corrections + Anxiety Clinic CBT x2 Requisition Documentation
+   - Ottawa 
 
 Creating a narrative script involves careful planning and organization to ensure that you cover all the necessary topics effectively. Here's a step-by-step guide to help you prepare a narrative script:
 
