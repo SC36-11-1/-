@@ -333,7 +333,7 @@ Medical History
 - Lightning Strike survivor 
 
 
-Conditions Reported by Dr. Soreni January 14, 2021 
+### Conditions Reported by Dr. Soreni January 14, 2021 
 SJHH St. Joseph’s Healthcare Hamilton 
 - Fear of open places 
 - Fear of social Situations 
@@ -342,14 +342,23 @@ SJHH St. Joseph’s Healthcare Hamilton
 - Panic Disorder
 - PTSD
 
-Janurary 20th 2024 @2:27
-The Ottawa Hospital Civic Campus - Emergency Department 613-722-7000
-lorne Wiesenfeld 
-*Patient says he was told by police to be checked out* I requested to be checked out police never told me to do anything creating an atmosphere that implies i do what im told fuck these people man
 
-impression management and plan 
->32 yo adult with perception of having potential sexual assault though he dose not recall these events or any subsequent symptomatology  this appears to be more likely delusion than assault he has follow up with his family doctor next month
->no where did they mention how the food being purged from my stomach so being starved isnt an issue they mentioned nausia but i never said i was nausious and i dont drink 
+### The Ottawa Hospital Civic Campus - Emergency Department 613-722-7000
+Janurary 20th 2024 @2:27
+lorne Wiesenfeld 
+*Patient says he was told by police to be checked out* I requested to be checked out police never told me to do anything creating an atmosphere that implies i do what im told what the fuck is with these weird fucking people man kill me godfuck
+
+### impression management and plan 
+- 32 yo adult with perception of having potential sexual assault though he dose not recall these events or any subsequent symptomatology  this appears to be more likely delusion than assault he has follow up with his family doctor next month
+- no where did they mention how the food being purged from my stomach so being starved isnt an issue they mentioned nausia but i never said i was nausious and i dont drink 
+
+
+
+
+
+
+
+
 
 ### LISA PROJECT✨
 
@@ -448,7 +457,7 @@ January 8th 2024 - Entry for 🟩
 
 January 11th 2024 - Update with Eccles information and Health Information 
 - Facial skin 
-- Stomach Purger
+- Stomach Purging
 - Medication Theft
 - Hygine Issues due to utilities proved
 - 
