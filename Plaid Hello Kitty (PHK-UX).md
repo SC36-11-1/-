@@ -352,6 +352,19 @@ lorne Wiesenfeld
 - 32 yo adult with perception of having potential sexual assault though he dose not recall these events or any subsequent symptomatology  this appears to be more likely delusion than assault he has follow up with his family doctor next month
 - no where did they mention how the food being purged from my stomach so being starved isnt an issue they mentioned nausia but i never said i was nausious and i dont drink 
 
+January 4th 2024 - Entry for 🟩
+January 5th 2024 - Entry for 🟩
+January 7th 2024 - Entry for 🟩
+January 8th 2024 - Entry for 🟩
+
+January 11th 2024 - Update with Eccles information and Health Information 
+- Facial skin chemically abraised 
+- Stomach Purging
+- Medication Theft
+- Hygine Issues due to utilities proved
+- 
+
+
 
 
 
@@ -448,19 +461,6 @@ Water Retention Management
 
 
 ![IMG_0934](https://github.com/SC36-11-1/-/assets/133059820/4febd6b0-7814-4688-aa74-8973550efe55)
-
-
-January 4th 2024 - Entry for 🟩
-January 5th 2024 - Entry for 🟩
-January 7th 2024 - Entry for 🟩
-January 8th 2024 - Entry for 🟩
-
-January 11th 2024 - Update with Eccles information and Health Information 
-- Facial skin 
-- Stomach Purging
-- Medication Theft
-- Hygine Issues due to utilities proved
-- 
 
 
 
