@@ -464,7 +464,8 @@ January 11th 2024 - Update with Eccles information and Health Information
 3. Introduction
    Main Points
    Conclusion
-4. Topics
+4. Introduction 
+5. Topics
    - Child hood History (Pre Hamilton)
    - Education (Post Hamilton)
    - Ontario Works 
@@ -478,7 +479,21 @@ January 11th 2024 - Update with Eccles information and Health Information
    - AirBnB issues of assult medical cover up with painkillers
    - Oakville Sheridan / Memorial Hospital Issues
    - Hamilton St. Josephs Medical Chart Review + Corrections + Anxiety Clinic CBT x2 Requisition Documentation
-   - Ottawa 
+   - Ottawa
+6. Documentation
+   - Hospital Chart + Visits
+   - Recordings / Voice Notes
+   - Phone Calls + Call Log
+   - Messages + Dictation iMessages
+   - Locations
+   - Photos
+   - Videos
+7. DEATH TONE
+8. Transistion
+9. Summerize & Conclude
+10. 
+
+
 
 Creating a narrative script involves careful planning and organization to ensure that you cover all the necessary topics effectively. Here's a step-by-step guide to help you prepare a narrative script:
 
