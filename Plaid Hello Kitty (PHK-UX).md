@@ -560,3 +560,15 @@ While the series aimed to address important issues such as mental health, bullyi
 The controversy surrounding the show prompted Netflix to add content warnings and resources related to mental health before episodes featuring explicit scenes. The discussion around "13 Reasons Why" also contributed to a broader conversation about the responsibility of media in addressing sensitive topics and the potential impact on viewers.
 
 It's important to note that my information is accurate up until January 2022, and there may have been developments or additional seasons released since then.
+
+
+
+
+
+
+
+
+
+
+
+I am currently on ODSP having my chemical imbalances altered with things like stomach purging to induce low glucose levels. I have been in therapy all my life and i keep waking up feeling as if i was injected with cortisol i don’t understand why seeing as ive never had a violent outburst or aggressive tendencies. Ive been dealing with this issue since November 2022. Constantly leaving the housing or rooms in question where i observe myself becoming chemically imbalanced. I cant do anything now but think about suicide and suicidal ideations i have been cutting myself to induce different endorphins but keep being injected with stress hormones and harassed verbally audibly and indirectly over the internet on my compromised devices, ive asked for assistance and have been experiencing delays after delays with no answer i believe my compromised device is responsible for intercepting my calls and emails. If you are able to get into contact with someone who downplays my situation they are facilitating my death 
