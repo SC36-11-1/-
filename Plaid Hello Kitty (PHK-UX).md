@@ -609,9 +609,18 @@ Account Number : 92607647
 IBAN: GB65 TRWI 2314 7092 6076 47
 56 Shoreditch High Street London E1 6JJ United Kingdom
 
+USA
+Account Holder 36Nibs
+ACH and Wire routing number: 026073150
+Account Number: 8311455273
+Account Type: Checking
 
+Wise Address: 30 W. 26th Street, Sixth Floor New York NY 10010 United States 
 
-
+NZD
+Account Holder: 36Nibs
+Account Number: 04-2021-0111323-84
+Wise Address: 56 Shoreditch High Street London E1 6JJ United Kingdom 
 
 
 
