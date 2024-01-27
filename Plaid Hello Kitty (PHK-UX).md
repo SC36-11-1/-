@@ -572,3 +572,50 @@ It's important to note that my information is accurate up until January 2022, an
 
 
 I am currently on ODSP having my chemical imbalances altered with things like stomach purging to induce low glucose levels. I have been in therapy all my life and i keep waking up feeling as if i was injected with cortisol i don’t understand why seeing as ive never had a violent outburst or aggressive tendencies. Ive been dealing with this issue since November 2022. Constantly leaving the housing or rooms in question where i observe myself becoming chemically imbalanced. I cant do anything now but think about suicide and suicidal ideations i have been cutting myself to induce different endorphins but keep being injected with stress hormones and harassed verbally audibly and indirectly over the internet on my compromised devices, ive asked for assistance and have been experiencing delays after delays with no answer i believe my compromised device is responsible for intercepting my calls and emails. If you are able to get into contact with someone who downplays my situation they are facilitating my death 
+
+
+
+
+
+### Bank Fraud Claim
+Tangerine
+- Tangerine account Number 4015948248
+- Orange Key 66521374S1
+- Account ID Number 78996654
+
+KOHO 
+
+BMO
+
+WISE 
+Canada
+Bitwayiki Elias
+Institution Number 621
+Account Number 200110254466
+Transit Number 16001
+
+99 Bank Street Suite 1420 Ottawa ON K1P 1H4 Canada
+
+EU
+Account Holder: 36Nibs
+BIC: TRWIBEB1XXX
+IBAN: BE11 9672 6314 0148
+Rue du Trone 100, 3rd Floor Brussels 1050 Belgium
+
+GBP
+Account Holder: 36Nibs
+Sort Code:23-14-70
+Account Number : 92607647
+IBAN: GB65 TRWI 2314 7092 6076 47
+56 Shoreditch High Street London E1 6JJ United Kingdom
+
+
+
+
+
+
+
+
+
+
+
