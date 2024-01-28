@@ -577,23 +577,25 @@ I am currently on ODSP having my chemical imbalances altered with things like st
 
 
 
-### Bank Fraud Claim
-Tangerine
+
+# Bank Fraud Claim
+
+## Tangerine
 - Tangerine account Number 4015948248
 - Orange Key 66521374S1
 - Account ID Number 78996654
 
-KOHO 
+## KOHO 
+Account Email: Mailbox3.elias@gmail.com
 Account Number: 218113726358
 Transit 16001
 Institution: 621
 Institution Name: Peoples Trust Company
 
+## BMO
 
-BMO
-
-WISE Email Used ndqrqnyb59@PrivateRelay.AppleID.com
-Canada
+## WISE 
+### Canada
 Bitwayiki Elias
 Institution Number 621
 Account Number 200110254466
@@ -601,20 +603,20 @@ Transit Number 16001
 
 99 Bank Street Suite 1420 Ottawa ON K1P 1H4 Canada
 
-EU
+### EU
 Account Holder: 36Nibs
 BIC: TRWIBEB1XXX
 IBAN: BE11 9672 6314 0148
 Rue du Trone 100, 3rd Floor Brussels 1050 Belgium
 
-GBP
+### GBP
 Account Holder: 36Nibs
 Sort Code:23-14-70
 Account Number : 92607647
 IBAN: GB65 TRWI 2314 7092 6076 47
 56 Shoreditch High Street London E1 6JJ United Kingdom
 
-USA
+### USA
 Account Holder 36Nibs
 ACH and Wire routing number: 026073150
 Account Number: 8311455273
@@ -622,14 +624,20 @@ Account Type: Checking
 
 Wise Address: 30 W. 26th Street, Sixth Floor New York NY 10010 United States 
 
-NZD
+### NZD
 Account Holder: 36Nibs
 Account Number: 04-2021-0111323-84
 Wise Address: 56 Shoreditch High Street London E1 6JJ United Kingdom 
 
+## PayPal
+Account Address: Mailbox1.elias@gmail.com 
+Account Closing Balance: $2.92
 
+## CoinSquare
+## CoinBase
+## Crypto.com
+## 
 
-
-
-
+## MOGO
+## CAPITAL ONE
 
