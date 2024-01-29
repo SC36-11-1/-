@@ -650,6 +650,11 @@ Account Closing Balance: $2.92
 
 ![20140901_214535](https://github.com/SC36-11-1/-/assets/133059820/0fdd9908-ba84-4bcc-8ec2-b8ed5f9e1648)
 
+![IMG_3645](https://github.com/SC36-11-1/-/assets/133059820/0f333acf-25cd-4958-9631-1063e11b2a9b)
+
+![IMG_3646](https://github.com/SC36-11-1/-/assets/133059820/34d33787-2d79-475a-afda-bc265d2b57c8)
+
+
 https://prowly.com/profiles/outlet-lists/top-100-media-outlets-in-canada
 
 
