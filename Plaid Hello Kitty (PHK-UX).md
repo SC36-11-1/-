@@ -664,4 +664,19 @@ Phone: (613) 569-5420
 
 
 
+# LEGAL AID 
+- CLT1960439 (Criminal Appeals )
+  CE56401027 = 1960439
+  3 months from
+  December 13 2023
+  March 13 2024
+- 4711-998-17-8503-01
+- 4711-998-18-1548-01
+
+
+
+
+
+
+
 
