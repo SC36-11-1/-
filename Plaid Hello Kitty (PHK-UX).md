@@ -118,6 +118,12 @@ I have to jump through the stupid hoops I guess it'll just keep being more stupi
 
 you're hoping I get tired of trying again that's what I'm waiting for myself as well that's the day you get to say I killed myself and you'll bother me until then until I go to the court for my pardon so that all these private investigations and secret investigations get fucked
 
+## HATCH 
+Halton Access to Community Housing
+- Confirmation Number # P5349765
+- Special priority, policy inquiry.
+
+
 ### Hello Kitty Update
 - Hire someone to assist manage / organize data
 - iMessage Diary Transcribe 
@@ -662,7 +668,8 @@ https://prowly.com/profiles/outlet-lists/top-100-media-outlets-in-canada
 Phone: (613) 569-5420
 - 
 
-
+# Fraud
+- Fraud ID# CT-2019-11-6527 (Update) 
 
 # LEGAL AID 
 - CLT1960439 (Criminal Appeals )
