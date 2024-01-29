@@ -4,6 +4,9 @@
 
 ![b13qweqgyx681](https://github.com/SC36-11-1/-/assets/133059820/e0bdc7d1-edd0-4caa-8c21-f99a964f99c4)
 
+![image](https://github.com/SC36-11-1/-/assets/133059820/57d305ea-2b7a-49f8-9518-d85d76f3ed75)
+
+
 ### User Experience Perceptual Research in Oakville Ontario Sheridan College
 
 Forced situation observation due to extinuating circumstances leading to this type of documention flyer coming soon with QR-Code
