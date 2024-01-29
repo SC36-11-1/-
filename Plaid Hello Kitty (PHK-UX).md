@@ -641,3 +641,20 @@ Account Closing Balance: $2.92
 ## MOGO
 ## CAPITAL ONE
 
+
+### BirthGiver Frauds son's identity with embassy assistance
+
+![20170925_143847](https://github.com/SC36-11-1/-/assets/133059820/dcd5c3c5-3e13-4f8e-ba74-8c0e83e3e94d)
+
+![2018-09-22_13 18 03](https://github.com/SC36-11-1/-/assets/133059820/8dd21dde-9c7d-400a-bef8-234a48f0d39f)
+
+https://prowly.com/profiles/outlet-lists/top-100-media-outlets-in-canada
+
+
+- Embassy of the Republic of Rwanda, Address: 153 Gilmour St, Ottawa, ON K2P 1J8
+Phone: (613) 569-5420
+- 
+
+
+
+
