@@ -651,7 +651,7 @@ Account Closing Balance: $2.92
 ## CAPITAL ONE
 
 
-### BirthGiver Frauds son's identity with embassy assistance
+### BG
 
 ![20170925_143847](https://github.com/SC36-11-1/-/assets/133059820/dcd5c3c5-3e13-4f8e-ba74-8c0e83e3e94d)
 
@@ -686,7 +686,7 @@ Phone: (613) 569-5420
 
 
 
-
+How did i know my book could be used as a thesis ? Because its a data visualization project about emotional intelligence and gender fluidity and pressing economical problems with fantasized solutions and ideologies for todays problems 
 
 
 
