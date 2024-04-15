@@ -94,6 +94,8 @@ Varying types of harassment,
 ![IMG_3700](https://github.com/SC36-11-1/-/assets/133059820/15dc9e48-d8e5-4d36-ab7d-10e47577bc39)
 ![IMG_5159](https://github.com/SC36-11-1/-/assets/133059820/c8be1374-2fd2-4e6e-9a96-6e706c0e9124)
 
+![IMG_3907](https://github.com/SC36-11-1/-/assets/133059820/28e59659-e60a-44d0-bed9-4e59e8eea0d4)
+![IMG_3977](https://github.com/SC36-11-1/-/assets/133059820/338667bf-eaf7-41f8-9e5c-1a61a2ebc4f0)
 
 Documented dissent Sunday, August 27,2023.
 
