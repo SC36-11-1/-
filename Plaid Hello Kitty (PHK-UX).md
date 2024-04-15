@@ -717,9 +717,15 @@ Wrapping up your cohort study documenting your medical journey and opinions duri
 
 By following this structured approach, you can effectively conclude your cohort study and provide valuable insights into your medical journey, experiences, and recommendations for improving healthcare practices and policies.
 
-
-### NOVEMBER 6th to APRIL 6 MOVING TRAUMA RECONCILED 
-
 Apple MacMini M1 
 ![IMG_2245](https://github.com/SC36-11-1/-/assets/133059820/a60a927d-73ca-46cf-9ae9-e45122be8628)
 ![IMG_2244](https://github.com/SC36-11-1/-/assets/133059820/c4b564d2-3dfc-4115-ae87-0a86143f85af)
+
+
+
+
+
+### NOVEMBER 6th to APRIL 6 MOVING TRAUMA RECONCILED 
+![IMG_1317](https://github.com/SC36-11-1/-/assets/133059820/efc4b957-cb8d-4601-a442-67d99a7809b3)
+
+
