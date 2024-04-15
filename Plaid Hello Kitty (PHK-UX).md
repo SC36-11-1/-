@@ -1,5 +1,9 @@
 # [Hello Kitty x Hundreds](https://www.sanrio.com/products/hello-kitty-x-the-hundreds-snowman-hoodie) ✨ [Red Plaid Pajama Pants](https://www.ebay.co.uk/itm/311456893964?var=610502456505)
 
+![IMG_2563](https://github.com/SC36-11-1/-/assets/133059820/6c158be3-6c7f-4021-b845-4cc00ec5896c)
+![IMG_2561](https://github.com/SC36-11-1/-/assets/133059820/bff7f7fe-86b4-4eff-9204-23df7b64ee36)
+
+
 ## By Bitwayiki Elias (Elias Bitwayiki)
 
 https://www.icloud.com/iclouddrive/0cdnjS3zOdJxPUHHFa8jee_2Q#Audio_files
