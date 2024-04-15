@@ -731,4 +731,6 @@ Apple MacMini M1
 ![IMG_6314](https://github.com/SC36-11-1/-/assets/133059820/27f37e99-36bc-42d4-90b6-fd266c55ad63)
 
 ![IMG_6472](https://github.com/SC36-11-1/-/assets/133059820/d87c21a9-7580-41e0-bb3e-e3e908b2b003)
+## Apple iPad Pro 11" 2020
+![IMG_1457](https://github.com/SC36-11-1/-/assets/133059820/3396a3c3-630d-40f2-b1bc-f69317a91524)
 
