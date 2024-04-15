@@ -716,3 +716,6 @@ By following this structured approach, you can effectively conclude your cohort 
 
 
 ### NOVEMBER 6th to APRIL 6 MOVING TRAUMA RECONCILED 
+
+Apple MacMini M1 
+![IMG_2245](https://github.com/SC36-11-1/-/assets/133059820/a60a927d-73ca-46cf-9ae9-e45122be8628)
