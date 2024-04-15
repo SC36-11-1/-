@@ -394,6 +394,9 @@ January 11th 2024 - Update with Eccles information and Health Information
 ### BioHacking
 https://chat.openai.com/share/36a74346-d561-4fbc-811f-ca257ab0ac8
 
+![IMG_0596](https://github.com/SC36-11-1/-/assets/133059820/b9620e7b-eb69-43a2-ad83-16cacbfdd332)
+
+
 1. Nutrition
     1. Charcoal infused 
     2. Mostly Liquid Diet
