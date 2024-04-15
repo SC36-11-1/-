@@ -12,6 +12,7 @@ https://www.icloud.com/iclouddrive/0cdnjS3zOdJxPUHHFa8jee_2Q#Audio_files
 ![IMG_2563](https://github.com/SC36-11-1/-/assets/133059820/6c158be3-6c7f-4021-b845-4cc00ec5896c)
 ![IMG_2561](https://github.com/SC36-11-1/-/assets/133059820/bff7f7fe-86b4-4eff-9204-23df7b64ee36)
 
+![IMG_4878](https://github.com/SC36-11-1/-/assets/133059820/21e458e0-f41d-4d42-8465-af3e40b0c66f)
 
 ### User Experience Perceptual Research in Oakville Ontario Sheridan College
 
@@ -32,6 +33,8 @@ Forced situation observation due to extinuating circumstances leading to this ty
   - Public Transport Hacks!!!
     
 <img src="https://github.com/SC36-11-1/-/assets/133059820/34bf31fb-3bac-4d6a-9706-db2c7af30722" width="600" height="770">
+
+
 
   - Meditation saved me, 4chan educated me into a social jsutice warrior, Biohacking kept me healthy, insomnia has won a lot of my battles, Respect and Communication skills is all you need
 
