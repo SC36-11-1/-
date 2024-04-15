@@ -722,3 +722,4 @@ By following this structured approach, you can effectively conclude your cohort 
 
 Apple MacMini M1 
 ![IMG_2245](https://github.com/SC36-11-1/-/assets/133059820/a60a927d-73ca-46cf-9ae9-e45122be8628)
+![IMG_2244](https://github.com/SC36-11-1/-/assets/133059820/c4b564d2-3dfc-4115-ae87-0a86143f85af)
