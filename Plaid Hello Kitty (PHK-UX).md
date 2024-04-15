@@ -99,6 +99,23 @@ Varying types of harassment,
 ![IMG_4053](https://github.com/SC36-11-1/-/assets/133059820/76544c1c-28b6-4ef8-a0fc-b2110eb00989)
 ![71063544291__0F59FF80-A870-4F4A-8034-FE3F247EAF60](https://github.com/SC36-11-1/-/assets/133059820/0203c53f-717a-4952-949f-290b4912892a)
 
+![IMG_5504](https://github.com/SC36-11-1/-/assets/133059820/b1e44dae-78a2-4d80-b573-752b8dc5927c)
+
+![IMG_4291](https://github.com/SC36-11-1/-/assets/133059820/494e4684-6f7f-478a-bfab-eff5ccc37b3d)
+
+![IMG_4415](https://github.com/SC36-11-1/-/assets/133059820/0a94af2a-c7de-40a0-90c3-31c4bf480389)
+
+![IMG_5792](https://github.com/SC36-11-1/-/assets/133059820/9d71ff8d-6712-4dba-ab4c-7dc2112c55ee)
+
+
+
+
+![IMG_5805](https://github.com/SC36-11-1/-/assets/133059820/4e83d276-47ad-42b3-afde-ac6a49622d3c)
+![IMG_5801](https://github.com/SC36-11-1/-/assets/133059820/a60a18b6-a9bc-4c46-a522-9fb0cc88bb8e)
+![IMG_5846](https://github.com/SC36-11-1/-/assets/133059820/02b769d3-c023-48c6-9fa9-1cbab207796c)
+
+
+![IMG_4386](https://github.com/SC36-11-1/-/assets/133059820/3b452a0a-a9ad-4b2f-ad4e-d4f2a7298ed7)
 Documented dissent Sunday, August 27,2023.
 
 Release Date Today Follow up Experience Date and Time Stamped 
