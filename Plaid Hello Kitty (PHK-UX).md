@@ -80,7 +80,21 @@ Varying types of harassment,
 - Item replacement
 - Coping,
 - meals/snacks
-- 
+-
+  
+![70562437869__75E69E02-CEBE-4BFD-8B83-AF4FCA6E7F0C](https://github.com/SC36-11-1/-/assets/133059820/977e3219-1360-405b-b151-fd4103c03e4d)
+
+
+![70570983476__66E10619-1BD8-4A3F-90FF-B3C95D424E8D](https://github.com/SC36-11-1/-/assets/133059820/0556ddd1-a75e-4f1f-aebd-1c1f4d1b873d)
+
+![IMG_3614](https://github.com/SC36-11-1/-/assets/133059820/3195a0bb-e58a-42f5-ba21-0d697f3ed4c5)
+![IMG_3645](https://github.com/SC36-11-1/-/assets/133059820/7e76fc34-1351-4d64-bc9f-18387b4974e6)
+![IMG_3656](https://github.com/SC36-11-1/-/assets/133059820/b1bf8874-3550-480d-8d12-630de0bb4105)
+![IMG_3699](https://github.com/SC36-11-1/-/assets/133059820/777e057d-a66b-48cb-b949-2e106c7d85cf)
+![IMG_3700](https://github.com/SC36-11-1/-/assets/133059820/15dc9e48-d8e5-4d36-ab7d-10e47577bc39)
+![IMG_5159](https://github.com/SC36-11-1/-/assets/133059820/c8be1374-2fd2-4e6e-9a96-6e706c0e9124)
+
+
 Documented dissent Sunday, August 27,2023.
 
 Release Date Today Follow up Experience Date and Time Stamped 
