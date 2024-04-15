@@ -730,4 +730,5 @@ Apple MacMini M1
 ![IMG_6315](https://github.com/SC36-11-1/-/assets/133059820/ed9730f1-a7af-4fc0-a427-f3a0d1785105)
 ![IMG_6314](https://github.com/SC36-11-1/-/assets/133059820/27f37e99-36bc-42d4-90b6-fd266c55ad63)
 
+![IMG_6472](https://github.com/SC36-11-1/-/assets/133059820/d87c21a9-7580-41e0-bb3e-e3e908b2b003)
 
