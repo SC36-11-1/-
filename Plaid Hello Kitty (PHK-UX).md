@@ -770,6 +770,10 @@ Apple MacMini M1
 
 ### NOVEMBER 6th to APRIL 6 MOVING TRAUMA RECONCILED 
 ![IMG_1317](https://github.com/SC36-11-1/-/assets/133059820/efc4b957-cb8d-4601-a442-67d99a7809b3)
+- https://info.lululemon.com/design/fabrics-technology/silverescent
+- https://www.roots.com/ca/en/organic-original-full-zip-hoodie-27050002.html?dwvar_27050002_color=G02
+- https://www.roots.com/ca/en/organic-heritage-sweatpant-27090020.html?dwvar_27090020_color=008
+
 ![IMG_6315](https://github.com/SC36-11-1/-/assets/133059820/ed9730f1-a7af-4fc0-a427-f3a0d1785105)
 ![IMG_6314](https://github.com/SC36-11-1/-/assets/133059820/27f37e99-36bc-42d4-90b6-fd266c55ad63)
 ## Apple iPhone 12
