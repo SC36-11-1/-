@@ -774,6 +774,9 @@ Apple MacMini M1
 - https://www.roots.com/ca/en/organic-original-full-zip-hoodie-27050002.html?dwvar_27050002_color=G02
 - https://www.roots.com/ca/en/organic-heritage-sweatpant-27090020.html?dwvar_27090020_color=008
 
+### Biotech clothing based design
+- https://chat.openai.com/share/2ed46812-2053-4fec-b420-1fd3825955c6
+
 ![IMG_1580](https://github.com/SC36-11-1/-/assets/133059820/1eb377f5-8756-4dfa-b0d5-04e713def42a)
 
 ![IMG_6315](https://github.com/SC36-11-1/-/assets/133059820/ed9730f1-a7af-4fc0-a427-f3a0d1785105)
