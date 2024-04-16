@@ -776,6 +776,11 @@ Apple MacMini M1
 
 ### Biotech clothing based design
 - https://chat.openai.com/share/2ed46812-2053-4fec-b420-1fd3825955c6
+### Slack Line Gym Equip
+![IMG_3297](https://github.com/SC36-11-1/-/assets/133059820/6a38d97a-c388-4b71-8414-695413a3b699)
+![IMG_3296](https://github.com/SC36-11-1/-/assets/133059820/bf44e47c-23f0-4498-9bc1-7667791abd54)
+![IMG_3295](https://github.com/SC36-11-1/-/assets/133059820/4af52cd8-6a60-4a62-aa23-cd868aaf0aa8)
+
 
 ![IMG_1580](https://github.com/SC36-11-1/-/assets/133059820/1eb377f5-8756-4dfa-b0d5-04e713def42a)
 
@@ -788,5 +793,6 @@ Apple MacMini M1
 
 - Reference Guerrilla Tea Room By Pierre Sernet (2002)
 ![IMG_1560](https://github.com/SC36-11-1/-/assets/133059820/d3b5ff5e-7192-4733-b7a7-92ab1f0c9081)
+
 
 
