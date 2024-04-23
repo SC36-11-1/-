@@ -85,7 +85,10 @@ Varying types of harassment,
 - Coping,
 - meals/snacks
 - 	### Vending machines 
--
+-![IMG_3859](https://github.com/SC36-11-1/-/assets/133059820/5c313296-d07e-4a31-bcef-8c7bd6c61446)
+![IMG_3995](https://github.com/SC36-11-1/-/assets/133059820/da407d84-d154-4607-83cc-898a87bc429f)
+![IMG_3849](https://github.com/SC36-11-1/-/assets/133059820/55f11e35-416f-458b-9dcc-a53a6374a392)
+
   
 ![70562437869__75E69E02-CEBE-4BFD-8B83-AF4FCA6E7F0C](https://github.com/SC36-11-1/-/assets/133059820/977e3219-1360-405b-b151-fd4103c03e4d)
 
@@ -111,6 +114,7 @@ Varying types of harassment,
 ![IMG_4415](https://github.com/SC36-11-1/-/assets/133059820/0a94af2a-c7de-40a0-90c3-31c4bf480389)
 
 ![IMG_5792](https://github.com/SC36-11-1/-/assets/133059820/9d71ff8d-6712-4dba-ab4c-7dc2112c55ee)
+![IMG_5391](https://github.com/SC36-11-1/-/assets/133059820/25a83e01-8bfd-47aa-80ba-fa86711fc896)
 
 
 ![IMG_0012](https://github.com/SC36-11-1/-/assets/133059820/dd6e413a-22a4-4d49-97da-d5d86452fbb6)
