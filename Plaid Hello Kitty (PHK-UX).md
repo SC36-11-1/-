@@ -84,6 +84,7 @@ Varying types of harassment,
 - Item replacement
 - Coping,
 - meals/snacks
+- 	### Vending machines 
 -
   
 ![70562437869__75E69E02-CEBE-4BFD-8B83-AF4FCA6E7F0C](https://github.com/SC36-11-1/-/assets/133059820/977e3219-1360-405b-b151-fd4103c03e4d)
