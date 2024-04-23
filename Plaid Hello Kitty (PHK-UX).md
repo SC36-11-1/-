@@ -2,6 +2,9 @@
 
 
 ## By Bitwayiki Elias (Elias Bitwayiki)
+![IMG_5111](https://github.com/SC36-11-1/-/assets/133059820/d66f649b-b4cb-4a7a-a6d3-b2eba5004909)
+![IMG_5112](https://github.com/SC36-11-1/-/assets/133059820/39f9cc55-d787-40b9-9dd4-b0ebb414f96e)
+![IMG_5113](https://github.com/SC36-11-1/-/assets/133059820/9561d290-cc92-4ce5-b40a-d5265733f09f)
 
 https://www.icloud.com/iclouddrive/0cdnjS3zOdJxPUHHFa8jee_2Q#Audio_files
 
@@ -88,6 +91,9 @@ Varying types of harassment,
 -![IMG_3859](https://github.com/SC36-11-1/-/assets/133059820/5c313296-d07e-4a31-bcef-8c7bd6c61446)
 ![IMG_3995](https://github.com/SC36-11-1/-/assets/133059820/da407d84-d154-4607-83cc-898a87bc429f)
 ![IMG_3849](https://github.com/SC36-11-1/-/assets/133059820/55f11e35-416f-458b-9dcc-a53a6374a392)
+![IMG_3756](https://github.com/SC36-11-1/-/assets/133059820/88154ef3-9bc8-4066-bcd9-24726fe13955)
+![IMG_3764](https://github.com/SC36-11-1/-/assets/133059820/095e4a0e-ba58-44d8-afd6-570575563e4f)
+![IMG_3766](https://github.com/SC36-11-1/-/assets/133059820/070c7a57-316c-4fd0-bd9b-6c560cf64659)
 
   
 ![70562437869__75E69E02-CEBE-4BFD-8B83-AF4FCA6E7F0C](https://github.com/SC36-11-1/-/assets/133059820/977e3219-1360-405b-b151-fd4103c03e4d)
