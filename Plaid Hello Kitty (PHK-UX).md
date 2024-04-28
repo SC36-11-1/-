@@ -832,6 +832,57 @@ https://www.ohchr.org/sites/default/files/2023-04/Brief-Protection-mechanisms-av
 
 https://laws-lois.justice.gc.ca/eng/annualstatutes/2017_22/FullText.html#:~:text=It%20allows%20journalists%20to%20not,public%20interest%20in%20preserving%20the
 
+Cyber Terrorism Incident 2023
+
+-Apple Devices 
+	Mac Mini 
+	IPad
+	IPhone
+-Theragun Massage Gun
+	Elite x2
+-Light Stand
+-Hue Lights
+-PS5
+-Amazon Order Technical Issues
+-Shoppers Cannabis
+-YouTube Premium
+	-Account Video Deletion
+-Bank Card Fraud Usage
+	-
+-Sheridan Art Fundamentals
+	-(COMM-1999)
+-906-1297 Marlborough Court
+
+2020
+Etsy
+Apple phishing / Siri Dictation
+Discord 
+Taxes / GST + Trillium 
+Bank accounts
+Clinique
+Hospital
+Phone company (ChatR)
+Internet account emails
+Court signature
+BMO Bank signature fraud 
+Wise Bank accounts
+Tangerine Bank account 
+Inform social worker of Stalker
+Freedom of information 
+
+
+Court ordered assistance
+Apple Account  	KOHO Account Unauthorised Purchases 
+BMO Bank (2x)
+
+Ontario OneKey
+
+2019
+
+Fraud ID# CT-2019-11-6527
+
+Tax Cheat - Follow up 
+
 
 $21.97 Ziploc Endurables Large Pouch
 $19.62 Ziploc Endurables Medium Container
