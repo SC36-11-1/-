@@ -828,5 +828,7 @@ Apple MacMini M1
 - Reference Guerrilla Tea Room By Pierre Sernet (2002)
 ![IMG_1560](https://github.com/SC36-11-1/-/assets/133059820/d3b5ff5e-7192-4733-b7a7-92ab1f0c9081)
 
+https://www.ohchr.org/sites/default/files/2023-04/Brief-Protection-mechanisms-available-for-journalists_0.pdf
 
+https://laws-lois.justice.gc.ca/eng/annualstatutes/2017_22/FullText.html#:~:text=It%20allows%20journalists%20to%20not,public%20interest%20in%20preserving%20the
 
