@@ -832,3 +832,116 @@ https://www.ohchr.org/sites/default/files/2023-04/Brief-Protection-mechanisms-av
 
 https://laws-lois.justice.gc.ca/eng/annualstatutes/2017_22/FullText.html#:~:text=It%20allows%20journalists%20to%20not,public%20interest%20in%20preserving%20the
 
+
+$21.97 Ziploc Endurables Large Pouch
+$19.62 Ziploc Endurables Medium Container
+$4.61 Cottonelle Freshcare Flushable Wet Wipes x4 = $18.44
+$47.51(+1 wipe)
+$3.75 x5 = $18.75
+$2.71(discounted)
+$59.72 Nautica Men’s Long Sleeve Shawl
+$15.54 Window Film
+$25.72 Irish Spring
+$5.62 Irish Spring
+$33.78 Dr. Teals Deodorant
+$5.05 Colgate
+$182.64 Bed Frame
+$22.59 RGB LightBulb
+$8.83 Stainless Steel Cigar Punch
+$42.93 Senville Portable Heater
+$79.09 Vacuum
+$28.99 Utopia Bedding 
+$3.33 Lysol
+$36.52 weird number 
+$30.75 Curtain Rod
+$16.99 Lint Roller
+$19.20
+$13.55 Adapter
+$220.34 Portable Monitor
+$34.99 Insurane
+$5.64 Towels
+$22.57 Charcoal
+$30.44 Towel pack
+$7.67 Fabreze
+$14.68 Cat 6 Cable
+$677.95 PS5
+$620.37 Theragun x2‼️
+$13.55 Charcoal
+$34.12 Bands
+$33.89 Body Powder
+$21.46 Camera Mount
+$15.26 Sticky notes
+$27.11 Headlamp
+$24.74 Headlamp
+$18.02 Marker
+$12.42 Sticky Notes
+$79.34 BeanBag
+$79.09 Steamer
+$38.99 Curtain Rod
+$45.99 Black out curtain 
+$96.03
+$21.98 Glass mug
+$42.99 Glass bowls
+$73.42
+$35.99 Blacklight Lamp
+$12.59 Dried butterfly
+$33.99 ifixit it
+$34.95 Pants
+$19.99 Infuser
+$153.75
+$29.99 Bedding
+$89.99 Lamp
+$135.58
+$49.04 Sheets
+$44.06 Curtain rob
+$39.49 Pants
+$105.08 HueWCA
+$99.45 Hue Bulb
+$105.89 Beast
+$311.25
+$350.29 sync box
+$55.07 hub
+$19.19 Cable splitter
+$38.99 Hamper
+$14.99 Laundry bags
+$44.06
+$37.69 Crystal Vogel
+$48.21 JumpRope
+$10.49 Almanac
+$180.79 Zeus Wand
+$95.02 Tuning fork
+($299.99-$39.00)$158.20 Standing desk
+$27.64 Almanac
+$20.83 Surge Protector 
+$44.74 Donut
+$45.25
+$59.00 Fingerprint door
+$59.99 Doorbell
+$21.99 Mount
+$159.31
+$57.61 Mount
+$67.79 Doorbell
+$38.27 Mount
+$66.67 Fingerprint door
+$26.85 Prism oracle 
+$26.47 Zener Cards
+$30.19 Quarts
+$49.99 EMF✨
+$146.58
+$11.99 Wall mount
+$29.99 FlashDrive
+$47.44
+$99.99 indoor Cam
+$44.99 Sync module x2
+$214.67
+$23.63 can opener
+$34.13 shirt
+$18.75 tie
+$10.84 webcam
+$14.32 keynboard
+$100.00 waffle robe
+$16.80 Pyjamas
+$131.98 
+$96.05 Vans
+$41.53 Olympic long Sleeve  LuluLemon 
+Play Station 5
