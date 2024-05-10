@@ -57,6 +57,28 @@ September
   -   Hamilton Enhanced measures more sever trauma shocked workers
   -   Station Hoping documentation
 
+	Time       | Activity
+	-----------|------------------------------------------------------
+	12:00 AM   | Sleep
+	3:00 AM    | Sleep
+	6:00 AM    | Sleep
+	9:00 AM    | Wake up, Morning Routine
+	10:00 AM   | Initial Inspiration/Prompt Engineering
+	11:00 AM   | Decompression Breaks
+	12:00 PM   | Focused Artistic Work
+	1:00 PM    | Decompression Breaks
+	2:00 PM    | Analytic and Data-Forward Thinking
+	3:00 PM    | Decompression Breaks
+	4:00 PM    | Creative Style Thinking
+	5:00 PM    | Decompression Breaks
+	6:00 PM    | Focused Artistic Work
+	7:00 PM    | Decompression Breaks
+	8:00 PM    | Analytic and Data-Forward Thinking
+	9:00 PM    | Decompression Breaks
+	10:00 PM   | Creative Style Thinking
+	11:00 PM   | Decompression Breaks/Sleep
+
+
 having someone assume your name and use your number just so someone can yell at you and trip you out is so boomer she knows your using my identity but im not scared its 2023!
 
 Social issue stated with initial psychologist to be reasonable given the circumstance of the people whom i am taking to court with connections and power it makes sense random people whole be aware 
