@@ -24,6 +24,35 @@ The Provider will develop a personalized treatment plan for the Patient, which m
 
 The Provider agrees to adhere to the following quality of care standards:
 - Provide care that is evidence-based, clinically appropriate, and in line with professional standards and guidelines.
+
+Static IP Address:
+Standard: Ensure a consistent, static IP address for stable connectivity and service accessibility.
+Quality of Care Standard:
+Guarantee a dedicated static IP address for the duration of the service contract.
+Provide detailed documentation for configuration and troubleshooting of the static IP address.
+Offer prompt technical support for any issues related to the static IP address.
+Confirmation of IP Change with Service Pause:
+
+Standard: Notify in advance about any planned IP changes to minimize service disruptions.
+Quality of Care Standard:
+Notify at least 3-5 days in advance of any planned IP changes.
+Temporarily pause services during the IP change to avoid interruptions.
+Communicate clearly the reason for the IP change and its potential impact on services.
+Raspberry Pi-hole for Ad Blocking:
+
+Standard: Implement ad-blocking solutions to enhance user experience and security.
+Quality of Care Standard:
+Deploy and maintain Raspberry Pi-hole for comprehensive ad blocking.
+Regularly update Pi-hole software and blocklists to ensure effectiveness.
+Provide guidance on configuring devices to utilize Pi-hole for ad blocking.
+Cloudflare Account Management:
+
+Standard: Utilize Cloudflare services for improved performance, security, and reliability.
+Quality of Care Standard:
+Manage Cloudflare account settings and configurations according to best practices.
+Monitor and optimize Cloudflare performance for enhanced website speed and security.
+Respond promptly to any alerts or issues raised by Cloudflare services.
+
 - Respect the Patient's autonomy, preferences, and cultural beliefs in the decision-making process.
 - Maintain confidentiality of the Patient's medical information in accordance with applicable laws and regulations.
 - Ensure a safe and comfortable environment for treatment, including infection control measures and accessibility accommodations.
