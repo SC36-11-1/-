@@ -90,3 +90,24 @@ Certainly! Here's the updated chart with mainly Apple products:
 | Secure Backup Procedures     | Procedures for securely backing up wallet data          | N/A (Use iCloud or encrypted backups) |
 
 Apple products offer robust security features and seamless integration across devices, making them suitable for managing and securing cryptocurrencies. Prices provided are estimates and may vary based on specifications and configurations.
+
+Certainly! Here's the updated chart focusing on Apple products, along with devices and tools for touch designer and generative art projects:
+
+| Device                        | Description                                            | Estimated Price Range (CAD) |
+|-------------------------------|--------------------------------------------------------|-----------------------------|
+| MacBook                      | High-performance laptop for development and design      | $1200 - $4000+              |
+| iPad                         | Tablet for mobile development and design                | $400 - $1500+               |
+| iPhone                       | Smartphone for on-the-go management and development     | $600 - $1500+               |
+| Apple Watch                  | Wearable device for notifications and monitoring        | $300 - $1000+               |
+| AirPods Max                  | High-fidelity wireless headphones for immersive audio   | $700 - $800+                |
+| External Storage             | Additional storage for storing project files            | $50 - $500+                 |
+| Touch Designer               | Software for creating interactive multimedia content    | $0 - $700+ (Depends on license) |
+| Generative Art Websites      | Platforms for showcasing and selling generative art     | Varies (Art Blocks, SuperRare, etc.) |
+| External Monitor             | Additional display for multitasking and visualizing     | $200 - $1000+               |
+| Graphic Tablet               | Input device for digital drawing and design             | $50 - $1000+                |
+| Digital Camera               | Camera for capturing reference images and videos        | $300 - $2000+               |
+| Studio Lighting              | Lighting equipment for photographing artwork            | $50 - $500+                 |
+| Adobe Creative Cloud         | Subscription for creative software suite                | $20 - $80+ per month        |
+| Online Courses               | Training resources for learning new skills              | $0 - $200+ (Depends on platform) |
+
+This chart reflects tools and devices commonly used for creative projects on Apple platforms, including touch designer and generative art. Prices are estimated and may vary depending on specifications and configurations.
