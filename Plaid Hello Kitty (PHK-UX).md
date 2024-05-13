@@ -170,6 +170,11 @@ Varying types of harassment,
 ![IMG_5801](https://github.com/SC36-11-1/-/assets/133059820/a60a18b6-a9bc-4c46-a522-9fb0cc88bb8e)
 ![IMG_5846](https://github.com/SC36-11-1/-/assets/133059820/02b769d3-c023-48c6-9fa9-1cbab207796c)
 
+!
+
+![IMG_1737](https://github.com/SC36-11-1/-/assets/133059820/e47b99e3-3d9e-4841-8cde-a5f3a36c2313)
+
+!
 
 ![IMG_4386](https://github.com/SC36-11-1/-/assets/133059820/3b452a0a-a9ad-4b2f-ad4e-d4f2a7298ed7)
 Documented dissent Sunday, August 27,2023.
@@ -1021,3 +1026,6 @@ Tax Cheat - Follow up
 	$96.05 Vans
 	$41.53 Olympic long Sleeve  LuluLemon 
 	Play Station 5
+
+
+
