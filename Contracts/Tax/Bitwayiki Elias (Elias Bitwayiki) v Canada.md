@@ -22,3 +22,5 @@ Yes, there have been cases in the past relating to similar topics such as disabi
 4. **Human Rights Cases**: Various human rights cases globally have addressed issues related to discrimination, denial of services, and violations of fundamental rights for individuals with disabilities. These cases often set precedents for the protection of human rights and the obligations of governments to ensure equal treatment and access to services for all citizens.
 
 While these examples may not directly mirror the specific circumstances you mentioned regarding a lawsuit against ODSP for manipulative use and breach of basic human rights in regards to CBT, they illustrate the types of legal issues and precedents that could be relevant to your case. Conducting further research and consulting with legal experts would be necessary to find more specific cases and develop a comprehensive legal strategy.
+
+![IMG_0021](https://github.com/SC36-11-1/-/assets/133059820/0ebd575c-ffd5-4def-9e28-e8cbe95cda16)
