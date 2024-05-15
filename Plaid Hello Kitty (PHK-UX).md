@@ -1028,16 +1028,13 @@ Tax Cheat - Follow up
 	Play Station 5
 
 
+![IMG_1735](https://github.com/SC36-11-1/-/assets/133059820/e7533493-dca8-40e8-ba5e-790424eec316)
 
 
 
-![IMG_0019](https://github.com/SC36-11-1/-/assets/133059820/3a87c110-309f-47d9-8a8c-d2e5ae6eba1d)
+![IMG_0020](https://github.com/SC36-11-1/-/assets/133059820/7143586f-087e-4a28-a63c-a8316bcc35fe)
 
-
-
-
-![Uploading IMG_0020.jpeg…]()
-
+![IMG_1744](https://github.com/SC36-11-1/-/assets/133059820/6f677724-4064-4613-8ea2-50f436209ccb)
 
 
 
