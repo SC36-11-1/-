@@ -1,5 +1,14 @@
 Amazon Claim
 
+https://www.dropbox.com/s/8wnd1gzd5dl0dac/Amazon%20Brampton%20Fulfilment%20Centre.m4a?st=ikxckzcy&dl=0
+https://www.dropbox.com/s/esg9sr6783z51nl/Amazon%20Returns%20policy%20change.m4a?st=ntwvdjdn&dl=0
+https://www.dropbox.com/s/215svqx88vezr0q/Amazon%20Customer%20Service.m4a?st=bq5sr49z&dl=0
+https://www.dropbox.com/s/25qxrkqrvhxou89/Amazon%20Delivery%20Issues.m4a?st=ithrhh5k&dl=0
+https://www.dropbox.com/s/jzpsbvmhy2bnppu/Amazon%20Name%20Issues.m4a?st=l4ie1yih&dl=0
+https://www.dropbox.com/s/ce17xb39g2g9efs/Amazon%20Package%20Tampering.m4a?st=0ttilpzw&dl=0
+https://www.dropbox.com/s/gw2bss1tkh7qmqp/Amazon%20Prime%20Issues.m4a?st=1rhs5vms&dl=0
+
+
 Plaintiff: Barbara Britain and Linda Dial
 Defendant Amazon, Inc. and Does 1 through 50
 Case Number: 3:2022cv01764
