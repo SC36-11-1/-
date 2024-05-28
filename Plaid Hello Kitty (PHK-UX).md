@@ -6,6 +6,10 @@ https://www.stjoes.ca/health-services/mental-health-addiction-services/mental-he
 
 ## By Bitwayiki Elias (Elias Bitwayiki)
 [591c3ef1-1d86-49cc-b0d0-ddf0d4418943_Streamer_profile.pdf](https://github.com/SC36-11-1/-/files/15283384/591c3ef1-1d86-49cc-b0d0-ddf0d4418943_Streamer_profile.pdf)
+
+![IMG_2875](https://github.com/SC36-11-1/-/assets/133059820/72dab39e-80de-48b2-be23-62937c13db62)
+
+
 [30ebede6-dce9-444b-8097-18823236533e_-E-Citizen_Digital_Diplomat_.pdf](https://github.com/SC36-11-1/-/files/15283538/30ebede6-dce9-444b-8097-18823236533e_-E-Citizen_Digital_Diplomat_.pdf)
 
 ![b13qweqgyx681](https://github.com/SC36-11-1/-/assets/133059820/e0bdc7d1-edd0-4caa-8c21-f99a964f99c4)
