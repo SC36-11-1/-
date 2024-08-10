@@ -1048,4 +1048,7 @@ Tax Cheat - Follow up
 ![ywc5H17mKfy8](https://github.com/SC36-11-1/-/assets/133059820/8692939b-cb2b-4eaa-bb6e-4d8558584321)
 
 ![IMG_1745](https://github.com/SC36-11-1/-/assets/133059820/fba557e0-2ebe-468d-948e-923f0e678cb3)
+![IMG_1610](https://github.com/user-attachments/assets/2184b49c-6204-4ff3-aa20-34c75220c207)
+![IMG_1613](https://github.com/user-attachments/assets/1c98b77e-0681-4227-b37e-7bd9c958c772)
+![IMG_1619](https://github.com/user-attachments/assets/ecb6ce29-b161-495a-8cfa-da437ecc0314)
 
