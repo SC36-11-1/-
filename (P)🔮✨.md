@@ -1,4 +1,4 @@
-Entropy + Chaos + Pattern recognition 
+# Entropy + Chaos + Pattern recognition 
 
 https://www.youtube.com/watch?v=CqL6kkMTjRw
 ![f27xcvv0bg751](https://github.com/user-attachments/assets/4338ed89-df28-412e-8b5c-443141a6a4a5)
