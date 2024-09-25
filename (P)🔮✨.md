@@ -410,5 +410,6 @@ https://www.youtube.com/watch?v=0bS098ZCako
 
 # ( 8 & 3 ) 📿✨
 # ( 9 ) 🤠✨
+## Hat
 # ( 10 ) 👛🛅👝🛍️🥡🎒✨
 ## Backpack
