@@ -2,7 +2,7 @@
 
 ![ezgif-7-9c2fb27ddc](https://github.com/user-attachments/assets/7676c267-6a79-4644-bdfc-961b420dae80)
 
-    Ancient Roman era carved faience 20-sided dice with Greek letters possibly used by an oracle, c. 2nd-3rd century CE.
+    Ancient Roman era carved faience 20-sided dice with Greek letters possibly used by an oracle, c. 2nd-3rd century CE.  Palamedes Euboean Prince Inventor of the dice Dedicated to Tyche
 
 
 https://www.youtube.com/watch?v=CqL6kkMTjRw
