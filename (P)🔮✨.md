@@ -438,50 +438,60 @@ Overall, while the direct influences might be subtle, the interplay between huma
 
 
 
-14-inch MacBook Pro - Space Black
+- 14-inch MacBook Pro - Space Black
 $8,974.00
 Your Engraving
 ✨🐇✨
-Pay 7.99% APR for 24 monthsFootnote‡
-$405.79/mo.per month
-Hide product details
-Hardware
-Apple M3 Max chip with 16‑core CPU, 40‑core GPU and 16‑core Neural Engine
-128GB unified memory
-8TB SSD storage
-14-inch Liquid Retina XDR display²
-96W USB-C Power Adapter
-Three Thunderbolt 4 ports, HDMI port, SDXC card slot, headphone jack, MagSafe 3 port
-Backlit Magic Keyboard with Touch ID - US English
-Accessory Kit
-Software
-Photos, iMovie, GarageBand
-Pages, Numbers, Keynote
-macOS
-Your Engraving
-✨🐇✨
-11-inch iPad Pro Wi-Fi + Cellular 1TB with nano-texture glass - Space Black
-$2,659.00
-Your Engraving
-✨🐇✨
-Magic Keyboard for iPad Pro 11‑inch (M4) - US English - White
-$399.00
-Your Engraving
-✨🐇✨
-Apple Pencil Pro
-$169.00
-Your Engraving
-✨🐇✨
-iPhone 16 Pro 128GB Natural Titanium
-$1,449.00
+
+        Pay 7.99% APR for 24 monthsFootnote‡
+        $405.79/mo.per month
+        Hide product details
+        Hardware
+        Apple M3 Max chip with 16‑core CPU, 40‑core GPU and 16‑core Neural Engine
+        128GB unified memory
+        8TB SSD storage
+        14-inch Liquid Retina XDR display²
+        96W USB-C Power Adapter
+        Three Thunderbolt 4 ports, HDMI port, SDXC card slot, headphone jack, MagSafe 3 port
+        Backlit Magic Keyboard with Touch ID - US English
+        Accessory Kit
+        Software
+        Photos, iMovie, GarageBand
+        Pages, Numbers, Keynote
+        macOS
 Your Engraving
 ✨🐇✨
 
-Apple Watch Series 10 GPS + Cellular, 42mm Natural Titanium Case with Blackberry Magnetic Link - S/M
-$1,069.00
+- 11-inch iPad Pro Wi-Fi + Cellular 1TB with nano-texture glass - Space Black
+
+        $2,659.00
 Your Engraving
 ✨🐇✨
 
-Personalised AirPods Max - Midnight
+- Magic Keyboard for iPad Pro 11‑inch (M4) - US English - White
+
+        $399.00
+Your Engraving
+✨🐇✨
+
+- Apple Pencil Pro
+
+        $169.00
+Your Engraving
+✨🐇✨
+
+- iPhone 16 Pro 128GB Natural Titanium
+
+        $1,449.00
+Your Engraving
+✨🐇✨
+
+- Apple Watch Series 10 GPS + Cellular, 42mm Natural Titanium Case with Blackberry Magnetic Link - S/M
+
+        $1,069.00
+Your Engraving
+✨🐇✨
+
+- Personalised AirPods Max - Midnight
 Your Engraving
 ✨🐇✨
