@@ -439,7 +439,8 @@ Overall, while the direct influences might be subtle, the interplay between huma
 
 
 - 14-inch MacBook Pro - Space Black
-$8,974.00
+
+        $8,974.00
 Your Engraving
 ✨🐇✨
 
@@ -493,5 +494,7 @@ Your Engraving
 ✨🐇✨
 
 - Personalised AirPods Max - Midnight
+
+        $779.00
 Your Engraving
 ✨🐇✨
