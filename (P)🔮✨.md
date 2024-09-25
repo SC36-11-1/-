@@ -503,6 +503,6 @@ Your Engraving
 # https://neurosity.co/crown
 
 # PS5 
-
+- 🐞 
 # Raspberry Pi W zero / Circuit Playground Express 
-https://www.adafruit.com/category/965
+- https://www.adafruit.com/category/965
