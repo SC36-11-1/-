@@ -442,7 +442,7 @@ Overall, while the direct influences might be subtle, the interplay between huma
 
         $8,974.00
 Your Engraving
-✨🐇✨
+    - ✨🐇✨
 
         Pay 7.99% APR for 24 monthsFootnote‡
         $405.79/mo.per month
@@ -461,40 +461,40 @@ Your Engraving
         Pages, Numbers, Keynote
         macOS
 Your Engraving
-✨🐇✨
+    - ✨🐇✨
 
 - 11-inch iPad Pro Wi-Fi + Cellular 1TB with nano-texture glass - Space Black
 
         $2,659.00
 Your Engraving
-✨🐇✨
+    - ✨🐇✨
 
 - Magic Keyboard for iPad Pro 11‑inch (M4) - US English - White
 
         $399.00
 Your Engraving
-✨🐇✨
+    - ✨🐇✨
 
 - Apple Pencil Pro
 
         $169.00
 Your Engraving
-✨🐇✨
+    - ✨🐇✨
 
 - iPhone 16 Pro 128GB Natural Titanium
 
         $1,449.00
 Your Engraving
-✨🐇✨
+    - ✨🐇✨
 
 - Apple Watch Series 10 GPS + Cellular, 42mm Natural Titanium Case with Blackberry Magnetic Link - S/M
 
         $1,069.00
 Your Engraving
-✨🐇✨
+    - ✨🐇✨
 
 - Personalised AirPods Max - Midnight
 
         $779.00
 Your Engraving
-✨🐇✨
+    - ✨🐇✨
