@@ -398,3 +398,8 @@ In Buddhist practice, each bead of a mala is typically associated with a mantra 
 Feel free to choose any prayer or mantra that resonates with you personally. The key is the intention behind your practice, making it meaningful to you.
 
 Southern Africa's Sangomas (traditional healers) and Inyangas (herbalists) use various ritual tools and participate in sacred ceremonies that are integral to their practices. Here’s a list of some common tools and ceremonies:
+
+# ( 4 ) 🧃💥
+
+![71RFQtcMbmL _SL1500_](https://github.com/user-attachments/assets/d70235a5-b168-4c24-bda1-bbe1334851fd)
+
