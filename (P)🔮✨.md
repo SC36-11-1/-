@@ -1,4 +1,9 @@
-# Entropy + Chaos + Pattern recognition 
+# Entropy + Chaos + Pattern recognition = Tyche (TeacheR)
+
+![ezgif-7-9c2fb27ddc](https://github.com/user-attachments/assets/7676c267-6a79-4644-bdfc-961b420dae80)
+
+    Ancient Roman era carved faience 20-sided dice with Greek letters possibly used by an oracle, c. 2nd-3rd century CE.
+
 
 https://www.youtube.com/watch?v=CqL6kkMTjRw
 ![f27xcvv0bg751](https://github.com/user-attachments/assets/4338ed89-df28-412e-8b5c-443141a6a4a5)
