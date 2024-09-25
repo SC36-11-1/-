@@ -416,3 +416,6 @@ https://www.youtube.com/watch?v=0bS098ZCako
 ## Hat
 # ( 10 ) 👛🛅👝🛍️🥡🎒✨
 ## Backpack
+
+
+![lil-uzi-2](https://github.com/user-attachments/assets/e727fbd6-b813-49d4-849f-82b80e68c6e1)
