@@ -307,3 +307,7 @@ Here’s a list of how a modern millennial in 2024 might modify traditional ritu
 ### Conclusion
 
 By blending traditional practices with modern technology, you can create a personalized spiritual toolkit that enhances your meditation and healing experiences. This approach maintains respect for the rituals while making them accessible and relevant to your lifestyle.
+
+### Fidget Keychain
+https://www.youtube.com/watch?v=rkht2L5YdTg
+
