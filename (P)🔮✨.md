@@ -337,6 +337,9 @@ By merging traditional elements of Amashoba with modern materials and technology
 
 # ( 3 ) ✨📿✨
 
+![715afGWhK7L _AC_UY1000_](https://github.com/user-attachments/assets/05315da1-1cdd-4dde-b65b-bb229b62b7b8)
+
+
 This project has great potential for enhancing communication analysis in gaming or collaborative environments. Good luck, and feel free to ask if you need more specific advice on any aspect!
 Here are some common types of mala beads and their typical bead counts:
 
