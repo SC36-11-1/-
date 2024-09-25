@@ -318,7 +318,7 @@ https://www.youtube.com/watch?v=rkht2L5YdTg
 
 https://www.youtube.com/watch?v=0bS098ZCako
 
-# ( 1 ) 📿✨🔮✨
+# ( 1 ) 📿✨🔮✨ 
 To modernize ankle rattles used by South African healers, you can incorporate both traditional elements and contemporary technology. Here’s how you might approach this:
 
 ### Modified Ankle Rattles
@@ -353,7 +353,10 @@ To modernize ankle rattles used by South African healers, you can incorporate bo
 
 By combining traditional elements of ankle rattles with modern technology and materials, you can create a unique and functional tool that enhances both movement and spiritual practice while maintaining cultural significance. This approach respects the roots of the practice while making it relevant and accessible in a contemporary context.
 
-# (2) ✨ 🪄 ✨
+# (2) ✨ 🪄 ✨ 
+
+![Apple-Pencil-Pro-features](https://github.com/user-attachments/assets/ea5cbe85-9877-4bb8-ab4d-7fdc053b1b73)
+
 
 To modernize Amashoba (divinity sticks) used in South African healing practices, you can blend traditional aspects with contemporary materials and technology. Here’s how you might approach this:
 
