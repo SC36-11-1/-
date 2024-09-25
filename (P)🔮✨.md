@@ -399,7 +399,16 @@ Feel free to choose any prayer or mantra that resonates with you personally. The
 
 Southern Africa's Sangomas (traditional healers) and Inyangas (herbalists) use various ritual tools and participate in sacred ceremonies that are integral to their practices. Here’s a list of some common tools and ceremonies:
 
-# ( 4 ) 🧃💥
+# ( 4-6 ) 🧃💥⚕️
 
 ![71RFQtcMbmL _SL1500_](https://github.com/user-attachments/assets/d70235a5-b168-4c24-bda1-bbe1334851fd)
 
+
+# ( 7 ) 📻🔇🦇🔊🎧
+## music or no music listen
+https://www.youtube.com/watch?v=0bS098ZCako
+
+# ( 8 & 3 ) 📿✨
+# ( 9 ) 🤠✨
+# ( 10 ) 👛🛅👝🛍️🥡🎒✨
+## Backpack
