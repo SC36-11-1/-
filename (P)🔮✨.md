@@ -1,4 +1,5 @@
 # Entropy + Chaos + Pattern recognition = Tyche (TeacheR)
+https://www.youtube.com/watch?v=HBWYF2Bt6t8
 
 ![ezgif-7-9c2fb27ddc](https://github.com/user-attachments/assets/7676c267-6a79-4644-bdfc-961b420dae80)
 
