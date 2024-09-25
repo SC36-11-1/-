@@ -411,6 +411,8 @@ Southern Africa's Sangomas (traditional healers) and Inyangas (herbalists) use v
 # ( 7 ) 📻🔇🦇🔊🎧
 ## music or no music listen
 https://www.youtube.com/watch?v=0bS098ZCako
+https://www.youtube.com/watch?v=65wqUKTBugo
+
 
 # ( 8 & 3 ) 📿✨
 # ( 9 ) 🤠✨
