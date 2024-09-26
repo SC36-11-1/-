@@ -1,6 +1,7 @@
 # Pranic Body Ultra-Sonic Core
 ![pranic-body](https://github.com/user-attachments/assets/6d13fa8f-283a-4770-b71e-2bb54e99274d)
 # Wings Of The Cherubim 
+https://en.wikipedia.org/wiki/Cherub
 
 # 12 Domain Universes (The Matrix)
 ![f4209049fb51009bc6c6644725e3cd1d](https://github.com/user-attachments/assets/70d230f1-0bf2-4d0d-8b71-31bd103bb45b)
