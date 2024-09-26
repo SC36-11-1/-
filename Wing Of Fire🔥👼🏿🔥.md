@@ -1,4 +1,4 @@
-# Pranic Body 
+# Pranic Body Ultra-Sonic Core
 ![pranic-body](https://github.com/user-attachments/assets/6d13fa8f-283a-4770-b71e-2bb54e99274d)
 # Wings Of The Cherubim 
 
