@@ -11,10 +11,9 @@
                                  
       (Bitwayiki Elias) Remove data leave data trail DUHH 1- 7 Eccles Street Ottawa K1R 6S1 Rwandan State-Less
 
-https://shorturl.at/Xsl8i
-
-https://storyfire.com/video/fwnicv1l7m04o69
-
+    https://shorturl.at/Xsl8i
+    https://storyfire.com/video/fwnicv1l7m04o69
+    https://www.youtube.com/watch?v=7GiDgP4F1j8
 
 To create a conceptual chart connecting the wings of cherubim with the twelve domain universes and the flow of energy, we can consider various symbolic representations. Here’s a structured breakdown:
 
