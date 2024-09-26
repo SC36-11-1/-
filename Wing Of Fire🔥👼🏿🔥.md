@@ -1,11 +1,15 @@
 # Pranic Body 
+![pranic-body](https://github.com/user-attachments/assets/6d13fa8f-283a-4770-b71e-2bb54e99274d)
 # Wings Of The Cherubim 
+
 # 12 Domain Universes (The Matrix)
+![f4209049fb51009bc6c6644725e3cd1d](https://github.com/user-attachments/assets/70d230f1-0bf2-4d0d-8b71-31bd103bb45b)
+
 
 # Ultra Sonic Core
 
                                  
-      (Bitwayiki Elias) Remove data leave data trail DUHH
+      (Bitwayiki Elias) Remove data leave data trail DUHH 1- 7 Eccles Street Ottawa K1R 6S1 Rwandan State-Less
 
 https://shorturl.at/Xsl8i
 
