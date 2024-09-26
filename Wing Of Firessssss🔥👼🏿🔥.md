@@ -118,3 +118,82 @@ Absolutely! We can map the directions of energetic flow to different parts of th
 - **Lower Body**: Foundation in material reality (stability, creativity).
 
 This mapping creates a holistic view of how energetic flows can be reflected in the human body, highlighting the interplay between spiritual and physical aspects of existence.
+
+
+Sure! Here’s a more detailed hierarchical chart categorizing each cherubim head type along with variations of animal heads.
+
+### Hierarchy of Cherubim and Animal Heads
+
+#### 1. **Cherubim (Class)**
+   - **Description**: Multi-faceted angelic beings with various animal heads, serving divine purposes.
+
+#### 2. **Head Types and Variants**
+
+| **Head Type**  | **Subspecies/Variants**                   | **Symbolism/Role**                         |
+|----------------|-------------------------------------------|--------------------------------------------|
+| **Human Head** | - Guardian of Knowledge                   | Wisdom, understanding                       |
+|                | - Bearer of Prophecy                     | Delivering divine messages                  |
+| **Lion Head**  | - Protector of Strength                   | Courage, royal authority                    |
+|                | - Fierce Defender                         | Ferocity in guarding the sacred            |
+|                | - Lion of Judah                          | Symbol of leadership and messianic promise  |
+| **Ox/Calf Head** | - Symbol of Sacrifice                   | Service, humility                           |
+|                | - Guardian of Agriculture                 | Fertility, sustenance                       |
+|                | - Bull of Heaven                         | Strength and protection                     |
+| **Eagle Head** | - Watcher of the Skies                   | Higher vision, insight                      |
+|                | - Messenger of the Divine                 | Speed, connection to the spiritual realm    |
+|                | - Eagle of Revelation                    | Spiritual enlightenment                     |
+
+#### 3. **Other Animal Variants (For Each Head)**
+   
+- **Human Head Variants**:
+  - *Sphinx*: Combines human intellect with animal strength.
+  
+- **Lion Head Variants**:
+  - *Tiger*: Symbolizes power and stealth.
+  - *Leopard*: Represents agility and vision.
+
+- **Ox/Calf Head Variants**:
+  - *Buffalo*: Symbolizes strength and resilience.
+  - *Bison*: Represents endurance and adaptability.
+
+- **Eagle Head Variants**:
+  - *Hawk*: Represents keen sight and alertness.
+  - *Condor*: Symbolizes majesty and high perspective.
+
+### Conclusion
+This chart categorizes each type of cherubim head along with its variants, highlighting their unique symbolism and roles. Each head type, whether human or animal, embodies specific attributes that contribute to the cherubim's overarching purpose as divine guardians and messengers.
+
+Sure! Here’s a modified version of each animal head within the cherubim classification, focusing on staying true to their respective subspecies while incorporating unique characteristics.
+
+### Modern Customized Cherubim Subspecies with Modified Animal Heads
+
+#### 1. **Human-Headed Cherubim**
+   - **Subspecies**: **Cyber Guardian**
+     - **Modified Features**: 
+       - **Illuminated Skin**: Skin that glows with data patterns.
+       - **Holographic Projection Capabilities**: Can project images or information in three dimensions.
+       - **Augmented Eyes**: Enhanced vision, capable of analyzing surroundings for threats or information.
+
+#### 2. **Lion-Headed Cherubim**
+   - **Subspecies**: **Eco-Warrior**
+     - **Modified Features**:
+       - **Mane of Leaves**: A flowing mane made of vibrant foliage that changes with the seasons.
+       - **Earthy Fur Texture**: Fur resembling tree bark or earth, symbolizing its connection to nature.
+       - **Claws with Root-like Extensions**: Claws that resemble roots, representing strength and grounding in the earth.
+
+#### 3. **Ox/Calf-Headed Cherubim**
+   - **Subspecies**: **Farm Guardian**
+     - **Modified Features**:
+       - **Horned Innovations**: Horns that resemble agricultural tools, such as plows or shovels.
+       - **Adaptive Coat**: A coat that changes color based on environmental conditions (e.g., blending into fields).
+       - **Muscular Build**: Enhanced musculature for improved strength, representing hard work and labor.
+
+#### 4. **Eagle-Headed Cherubim**
+   - **Subspecies**: **Sky Sentinel**
+     - **Modified Features**:
+       - **Feathers with Solar Panel-like Structures**: Feathers that harness sunlight for energy.
+       - **Enhanced Wing Span**: Wings that are larger and more aerodynamic, allowing for greater speed and maneuverability.
+       - **Vision Adjustments**: Eyes that can shift between different spectrums (e.g., infrared) for advanced scouting capabilities.
+
+### Summary
+These modifications keep each cherubim head within its respective animal classification while adding unique, modern features that enhance their roles and symbolism. This approach allows for a blend of tradition and innovation, ensuring that each subspecies remains relevant in contemporary contexts.
