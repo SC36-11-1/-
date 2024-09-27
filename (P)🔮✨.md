@@ -1,3 +1,6 @@
+# Aphrodite Mother (🐇🐇✨🐇🐇✨📉👨‍🦼)
+![24c2497d-1738-4358-be3c-6c32e0170db8](https://github.com/user-attachments/assets/f1b82ec0-53f7-48e7-96fb-7c9d92f9e9e1)
+
 # Entropy + Chaos + Pattern recognition = Tyche (TeacheR)
 https://www.youtube.com/watch?v=HBWYF2Bt6t8
 
