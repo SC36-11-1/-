@@ -561,3 +561,11 @@ For tasks leveraging Apple's software ecosystem, the M3 Max MacBook Pro stands o
 
 # Android Phone Crypto Management (Off Apple)
 https://intl.nothing.tech/pages/phone-2a-plus
+
+
+# 2 PINK TICKETS x *
+
+https://36nibs.wordpress.com/
+Source: Statistics
+
+✨‼️🖥💻 S T R E A M 📺📱‼️✨❌❌❌
