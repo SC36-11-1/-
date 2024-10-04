@@ -563,6 +563,10 @@ For tasks leveraging Apple's software ecosystem, the M3 Max MacBook Pro stands o
 https://intl.nothing.tech/pages/phone-2a-plus
 
 
+# YOUTUBE RANDOM EASTER EGGS ✨✨✨🥚🥚🥚✨✨✨
+
+https://ytroulette.com/?i=865&c=0&l=en#google_vignette
+
 # 2 PINK TICKETS x *
 
 https://36nibs.wordpress.com/
