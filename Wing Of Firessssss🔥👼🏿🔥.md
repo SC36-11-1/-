@@ -197,3 +197,17 @@ Sure! Here’s a modified version of each animal head within the cherubim classi
 
 ### Summary
 These modifications keep each cherubim head within its respective animal classification while adding unique, modern features that enhance their roles and symbolism. This approach allows for a blend of tradition and innovation, ensuring that each subspecies remains relevant in contemporary contexts.
+
+
+# SHO SHOT 🍮✨✨⭐
+### family constellation
+![recpver](https://github.com/user-attachments/assets/0d14c283-a640-4335-a62e-17d2704842fb)
+![Top-5-Books-on-Family-Constellation-Theory-ampamp-Healing](https://github.com/user-attachments/assets/4de03ac2-0260-4f25-a6d4-eaf70c2d3f1d)
+![family-constellations-1](https://github.com/user-attachments/assets/bb8079df-320b-4f0e-870c-c4308290ece0)
+![Constellation-Cropped](https://github.com/user-attachments/assets/0c4ad8bb-d01f-4ef6-9eaf-3931b51e7e12)
+![il_1140xN 2324003992_21x6](https://github.com/user-attachments/assets/dff41c08-f6e3-4d4f-9388-d34a1f5947de)
+
+
+
+https://www.youtube.com/watch?v=1_zwLuNJ5Ck
+https://www.youtube.com/watch?v=JKna-yslS9Q
