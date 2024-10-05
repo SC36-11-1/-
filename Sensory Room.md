@@ -13,3 +13,12 @@ https://youtu.be/9YHVoTM9pb8?si=vpT6FwANmlH2UP9Q
 https://youtu.be/T9j6rQ4rtQY?si=ykQy01j1JNItzDew
 
 https://youtu.be/V6hhKGJuiNw?si=HvF8NjCRBQLMs3iK
+
+### Fox Temple
+https://www.youtube.com/watch?v=Xf7nLAnXxno
+
+### Bar Tending
+https://www.youtube.com/watch?v=UjjTMNDZi-A
+
+### Sakugabooru
+https://www.sakugabooru.com/
