@@ -22,6 +22,7 @@ https://www.youtube.com/watch?v=xUyuUA9_FNw
 
 # MUSIC 
 https://www.youtube.com/watch?v=CTKCFiy4Wsw
+![gettyimages-1494386174-612x612](https://github.com/user-attachments/assets/e88c0747-5230-48df-b41b-56806207b30e)
 
 
 ## Above & Beyond Group Therapy
