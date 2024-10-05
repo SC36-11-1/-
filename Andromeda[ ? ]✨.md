@@ -1,11 +1,18 @@
 
-![Brain_Changer_eyes](https://github.com/user-attachments/assets/e6e3e595-d6b1-4509-926f-1db5b4e6a427)
+![Brain_Changer_eyes](https://![E-genesis](https://github.com/user-attachments/assets/498fd533-d624-42fc-a6f6-eb3497bb782b)
+github.com/user-attachments/assets/e6e3e595-d6b1-4509-926f-1db5b4e6a427)
 
 
 ![33](https://github.com/user-attachments/assets/dc1b0ee7-af5a-4fb1-a03c-1da55850703a)
 
-![E-genesis](https://github![Air_gear_ova-5045](https://github.com/user-attachments/assets/6c16b3db-2bd4-4110-abf8-916b2f023f85)
-.com/user-attachments/assets/86f23574-8cc6-4d6b-b7af-1c9c937a7b11)
+![Air_gear_ova-5045](https://github.com/user-attachments/assets/eee8e2e8-8255-4452-b088-05c73f7e70d2)
+
+![E-genesis](https://github.com/user-attachments/assets/0c44dd30-fc18-409f-8a66-017d9e10cf96)
+
+
+![Uploading E-genesis.png…]()
+
+
 
 # School in vibe with (✨✨✨✨✨🦑✨✨✨✨✨) 
 
