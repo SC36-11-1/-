@@ -1,5 +1,5 @@
 # ICE 🌨️ 🏔️🌙
-
+----
 ![Ep122HuecoMundo](https://github.com/user-attachments/assets/4c142a94-f11b-49d1-a700-724d30c0ae15)
 
 
@@ -12,6 +12,12 @@ https://www.youtube.com/watch?v=4j2IFjaY0eI
 
 
 # ANIMATION (W) | (W) 
+
+# Loop Animation
+https://www.youtube.com/watch?v=u9zCHbSAoGE
+
+-----------------
+
 https://www.youtube.com/watch?v=aRdopOj08b0
 https://www.youtube.com/watch?v=9C_qxWI9W_A
 https://www.youtube.com/watch?v=NTeE2IHtBzs
