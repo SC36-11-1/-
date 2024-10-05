@@ -19,6 +19,7 @@ https://www.youtube.com/watch?v=Xf7nLAnXxno
 
 ### Bar Tending
 https://www.youtube.com/watch?v=UjjTMNDZi-A
+https://www.youtube.com/watch?v=dSI1njkOqFI
 
 ### Sakugabooru
 https://www.sakugabooru.com/
