@@ -1,6 +1,7 @@
 ![51Ax4dcoQPL __AC_SX300_SY300_QL70_ML2_](https://github.com/user-attachments/assets/59555160-f87e-4a0b-8765-c96f15e80193)
 
 ![5500ccf5d5230a53590385785ec8c7c537619e78](https://github.com/user-attachments/assets/fe06a072-8f66-4cf7-a803-573c8227a5f7)
+![GettyImages-544367412-6eb2ee235f6748c38d23d85964ba10e2](https://github.com/user-attachments/assets/c8fbc286-4f62-4696-86dd-cbf48aa2d429)
 
 ![Malady 26Malaise](https://github.com/user-attachments/assets/1f352322-f89f-4f81-8fe3-630575bbe571)
 
