@@ -2,6 +2,10 @@
 
 ![Ep122HuecoMundo](https://github.com/user-attachments/assets/4c142a94-f11b-49d1-a700-724d30c0ae15)
 
+![Bubbles_and_Fuzzy_Lumpkin_Vinyl_Art_Toys_caec54b9-a924-4c20-bced-658f08f19e32](https://github.com/user-attachments/assets/97c47b14-1e0b-40bb-94cc-ef62932b7f4d)
+
+
+
 # MUSIC 
 https://www.youtube.com/watch?v=CTKCFiy4Wsw
 
