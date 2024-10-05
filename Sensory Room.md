@@ -1,5 +1,5 @@
 
-![![black rabbits](https://github.com/user-attachments/assets/6370132d-4b03-4219-a0c9-abebe29632a2)
+![black rabbits](https://github.com/user-attachments/assets/6370132d-4b03-4219-a0c9-abebe29632a2)
 
 FOX_logo](https://github.com/user-attachments/assets/4dcf900c-f861-448e-b9a1-b914f661f22d)
 
