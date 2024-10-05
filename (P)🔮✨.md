@@ -43,6 +43,8 @@ https://www.webcamtaxi.com/en/netherlands/north-holland/amsterdam-dam-square.htm
 
 https://www.webcamtaxi.com/en/netherlands/north-holland/amsterdam-dam-square.html
 
+![c47ocbA](https://github.com/user-attachments/assets/42828533-6a58-46f9-8458-fea5f4a0f1f9)
+
 
 ![Severed_Universe](https://github.com/user-attachments/assets/83648d23-231a-4a56-9c2d-066e204c9904)
 
@@ -52,6 +54,11 @@ https://www.webcamtaxi.com/en/netherlands/north-holland/amsterdam-dam-square.htm
 ![Sh%3F%27s_Appearance](https://github.com/user-attachments/assets/ca789d20-98df-42d4-bd7f-4ad9c8278ce7)
 
 ![KirariScary](https://github.com/user-attachments/assets/54fd6ba2-7a4e-41b2-9e0a-9c2e2c66924f)
+
+![hello-i-really-like-this-eye-photo-of-makima-chainsaw-man-v0-u2s8ec8r7akb1](https://github.com/user-attachments/assets/7a692f01-43b6-4854-9b15-4afbe1722a45)
+
+
+![c47ocbA](https://github.com/user-attachments/assets/64c56e53-7eb3-4b20-a74e-c8b8ee4910f8)
 
 
 ![Brain_Changer_eyes](https://github.com/user-attachments/assets/c8236c41-480e-4832-bd1a-f7243f496fbc)
