@@ -5,6 +5,7 @@
 ![Bubbles_and_Fuzzy_Lumpkin_Vinyl_Art_Toys_caec54b9-a924-4c20-bced-658f08f19e32](https://github.com/user-attachments/assets/97c47b14-1e0b-40bb-94cc-ef62932b7f4d)
 
 
+![hqdefault](https://github.com/user-attachments/assets/ab213563-10d3-4f33-999a-ca3b643decd9)
 
 # MUSIC 
 https://www.youtube.com/watch?v=CTKCFiy4Wsw
