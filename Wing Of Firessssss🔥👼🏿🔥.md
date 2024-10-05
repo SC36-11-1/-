@@ -215,6 +215,7 @@ https://www.youtube.com/watch?v=JKna-yslS9Q
 
 ![Severed_Universe](https://github.com/user-attachments/assets/83648d23-231a-4a56-9c2d-066e204c9904)
 
+![0780fc5b20111e0efa3aa5904f531534](https://github.com/user-attachments/assets/f1e818ab-dbb7-456a-b526-9588357dfe98)
 
 
 ![Sh%3F%27s_Appearance](https://github.com/user-attachments/assets/ca789d20-98df-42d4-bd7f-4ad9c8278ce7)
