@@ -1,5 +1,9 @@
 # ICE 🌨️ 🏔️🌙
 ----
+
+![Algol-view-1024x576](https://github.com/user-attachments/assets/af1fad68-976d-479e-989d-4e07eb068acc)
+
+
 ![Ep122HuecoMundo](https://github.com/user-attachments/assets/4c142a94-f11b-49d1-a700-724d30c0ae15)
 
 ![79871baf486ac4a0dba57f7ecb786227](https://github.com/user-attachments/assets/dfc73918-4fe3-41dc-b970-3b55744f11bd)
