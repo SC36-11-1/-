@@ -5,6 +5,7 @@
 
 # Loop Animation
 https://www.youtube.com/watch?v=u9zCHbSAoGE
+https://www.youtube.com/watch?v=xUyuUA9_FNw
 
 
 ![Ep122HuecoMundo](https://github.com/user-attachments/assets/4c142a94-f11b-49d1-a700-724d30c0ae15)
