@@ -9,11 +9,10 @@ https://www.youtube.com/watch?v=HBWYF2Bt6t8
 
 ![ezgif-7-9c2fb27ddc](https://github.com/user-attachments/assets/7676c267-6a79-4644-bdfc-961b420dae80)
 
-
-![81O6JfipQhL _AC_UF1000,1000_QL80_](https://github.com/user-attachments/asset![Uploading m.jpeg…]()
-s/d70d5fc2-8a31-4975-b8d5-3e3be88b8fed)
+![81O6JfipQhL _AC_UF1000,1000_QL80_](https://github.com/user-attachments/assets/79960503-18ac-41a2-9c28-a535abe564a2)
 
 
+![m](https://github.com/user-attachments/assets/6a814d99-d004-4ea0-9129-8259ebfab275)
 
 
 
