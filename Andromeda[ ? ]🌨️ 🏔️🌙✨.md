@@ -10,6 +10,9 @@ https://www.youtube.com/watch?v=xUyuUA9_FNw
 
 ![Ep122HuecoMundo](https://github.com/user-attachments/assets/4c142a94-f11b-49d1-a700-724d30c0ae15)
 
+![lantern_mushrooms_web_950_514_65](https://github.com/user-attachments/assets/c722f09f-ca32-4c42-8860-0006527af2e7)
+
+
 ![79871baf486ac4a0dba57f7ecb786227](https://github.com/user-attachments/assets/dfc73918-4fe3-41dc-b970-3b55744f11bd)
 
 # MUSIC 
