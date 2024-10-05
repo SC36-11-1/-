@@ -3,6 +3,9 @@
 
 ![Algol-view-1024x576](https://github.com/user-attachments/assets/af1fad68-976d-479e-989d-4e07eb068acc)
 
+# Loop Animation
+https://www.youtube.com/watch?v=u9zCHbSAoGE
+
 
 ![Ep122HuecoMundo](https://github.com/user-attachments/assets/4c142a94-f11b-49d1-a700-724d30c0ae15)
 
@@ -18,8 +21,6 @@ https://www.youtube.com/watch?v=4j2IFjaY0eI
 
 # ANIMATION (W) | (W) 
 
-# Loop Animation
-https://www.youtube.com/watch?v=u9zCHbSAoGE
 
 -----------------
 
