@@ -2,6 +2,7 @@
 ----
 ![Ep122HuecoMundo](https://github.com/user-attachments/assets/4c142a94-f11b-49d1-a700-724d30c0ae15)
 
+![79871baf486ac4a0dba57f7ecb786227](https://github.com/user-attachments/assets/dfc73918-4fe3-41dc-b970-3b55744f11bd)
 
 # MUSIC 
 https://www.youtube.com/watch?v=CTKCFiy4Wsw
