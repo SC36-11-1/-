@@ -45,6 +45,8 @@ https://www.webcamtaxi.com/en/netherlands/north-holland/amsterdam-dam-square.htm
 
 ![c47ocbA](https://github.com/user-attachments/assets/42828533-6a58-46f9-8458-fea5f4a0f1f9)
 
+![de9k74o-44f68ec8-fa6e-4973-b81b-9594a92e9d54](https://github.com/user-attachments/assets/2b7acf0c-92ed-4fb0-a581-43603741f57b)
+
 
 ![Severed_Universe](https://github.com/user-attachments/assets/83648d23-231a-4a56-9c2d-066e204c9904)
 
