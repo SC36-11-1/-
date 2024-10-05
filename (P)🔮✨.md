@@ -15,6 +15,12 @@ https://www.youtube.com/watch?v=HBWYF2Bt6t8
 ![m](https://github.com/user-attachments/assets/6a814d99-d004-4ea0-9129-8259ebfab275)
 
 
+![373695597-af9b6505-8b3a-406a-8b19-e0e1f0cb1b2f](https://github.com/user-attachments/assets/cc886ee0-4730-427e-b4ec-7d9d4bb9c95c)
+
+
+
+
+
 
 https://screenrant.com/gravity-falls-book-of-bill-cipher-fate-question-answer/
 
