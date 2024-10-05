@@ -6,6 +6,8 @@ https://www.youtube.com/watch?v=oVXKwNlvKSs
 
 ![Algol-view-1024x576](https://github.com/user-attachments/assets/af1fad68-976d-479e-989d-4e07eb068acc)
 
+![iceland-aurora-680650392-598a61f4845b34001126e0b9](https://github.com/user-attachments/assets/618930d1-c0a1-4b18-b19a-2102d750c0a0)
+
 # Loop Animation
 https://www.youtube.com/watch?v=u9zCHbSAoGE
 https://www.youtube.com/watch?v=xUyuUA9_FNw
