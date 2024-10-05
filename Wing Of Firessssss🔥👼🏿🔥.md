@@ -200,6 +200,8 @@ These modifications keep each cherubim head within its respective animal classif
 
 
 # SHO SHOT 🍮✨✨⭐
+![ice-finger-death-finger](https://github.com/user-attachments/assets/0bad1d95-b975-4779-8048-7799b93702b1)
+
 ### family constellation
 ![recpver](https://github.com/user-attachments/assets/0d14c283-a640-4335-a62e-17d2704842fb)
 ![Top-5-Books-on-Family-Constellation-Theory-ampamp-Healing](https://github.com/user-attachments/assets/4de03ac2-0260-4f25-a6d4-eaf70c2d3f1d)
