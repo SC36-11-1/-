@@ -1,7 +1,7 @@
 
 ![black rabbits](https://github.com/user-attachments/assets/6370132d-4b03-4219-a0c9-abebe29632a2)
 
-[FOX_logo](https://github.com/user-attachments/assets/4dcf900c-f861-448e-b9a1-b914f661f22d)
+![FOX_logo](https://github.com/user-attachments/assets/4dcf900c-f861-448e-b9a1-b914f661f22d)
 
 
 ![DragonFruitEggssssssss](https://github.com/user-attachments/assets/af9b6505-8b3a-406a-8b19-e0e1f0cb1b2f)
