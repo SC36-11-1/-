@@ -1,4 +1,3 @@
-Late 19th Century	Sacred geometry influences art and design	1889: Margherita pizza is created in Italy, representing the colors of the Italian flag (red, white, green).
 
 # Pranic Body Ultra-Sonic Core
 ![pranic-body](https://github.com/user-attachments/assets/6d13fa8f-283a-4770-b71e-2bb54e99274d)
@@ -241,10 +240,21 @@ https://www.youtube.com/watch?v=JKna-yslS9Q
 ![Justin Law full 381061](https://github.com/user-attachments/assets/5f34c9e1-26f4-4680-aa2d-43d82ffdac20)
 
 
+Late 19th Century	Sacred geometry influences art and design	1889: Margherita pizza is created in Italy, representing the colors of the Italian flag (red, white, green).
+
+https://imgur.com/user/thefreepizzadude/about
+
+Rules for Request: https://imgur.com/a/rI9NmJf
+Rules for Angels: https://imgur.com/a/KeqFgqU
+PayPal Pizza Fund: https://www.paypal.com/paypalme/TheFreePizzaDude
 
 
+# DOMINOES
+(Burlington + AirBnB)
+Ottawa
+- Philidalphia cheese steak pizza 
 
-
-
+# Seasons Pizza
+Hawaiian Large
 
 
