@@ -640,3 +640,6 @@ For tasks leveraging Apple's software ecosystem, the M3 Max MacBook Pro stands o
 
 # Android Phone Crypto Management (Off Apple)
 https://intl.nothing.tech/pages/phone-2a-plus
+
+# BONE THROWING 
+## The Science and Art of The Facial Reconstruction Process
