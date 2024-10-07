@@ -42,6 +42,9 @@ To create a conceptual chart connecting the wings of cherubim with the twelve do
    - **11th Universe**: Below - Earthly existence and material reality.
    - **12th Universe**: Beyond - Infinite possibilities and multidimensional existence.
 
+### Brain has structures operating in up to eleven dimensions.
+https://www.ncbi.nlm.nih.gov/pmc/articles/PMC6874527/#:~:text=It%20is%20claimed%20that%20the,precise%20representations%20of%20geometric%20objects.
+
 ### Energy Flow Chart
 
 1. **Central Point** (Origin):
