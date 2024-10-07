@@ -35,3 +35,6 @@ https://www.youtube.com/watch?v=dSI1njkOqFI
 
 ### Sakugabooru
 https://www.sakugabooru.com/
+
+# Laser + Mirror + Sound
+https://www.youtube.com/watch?v=C-V1uXeyGmg
