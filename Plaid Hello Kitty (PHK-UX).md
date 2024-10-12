@@ -1056,6 +1056,10 @@ Tax Cheat - Follow up
 
 https://preview.redd.it/sidaxnf3klx21.jpg?auto=webp&s=cbb935bc41a6176ebc5d15895b2c5c99106c7d84
 
-![Uploading dexfu6k-740a9428-5045-4eae-929e-457951367685.png…]()
-
 https://www.youtube.com/watch?v=CqL6kkMTjRw
+
+
+![dexfu6k-740a9428-5045-4eae-929e-457951367685](https://github.com/user-attachments/assets/bbe49846-9ba1-48e1-a677-ab01ef5cfef3)
+
+
+
