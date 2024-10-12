@@ -651,3 +651,6 @@ https://www.alamy.com/gay-malin-a-facial-reconstruction-specialist-with-the-new-
 ### ROM Libraries & Archives 
 
 https://www.rom.on.ca/en/collections-research/library-archives
+- Royal Ontario Museum Library and Archives research Appointment
+- 
+https://koalendar.com/e/rom-library-and-archives-research-appointment
