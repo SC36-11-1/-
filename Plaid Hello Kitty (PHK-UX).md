@@ -1,4 +1,5 @@
 # [Hello Kitty x Hundreds](https://www.sanrio.com/products/hello-kitty-x-the-hundreds-snowman-hoodie) ✨ [Red Plaid Pajama Pants](https://www.ebay.co.uk/itm/311456893964?var=610502456505)
+![106200615_2781177695444172_1613400693846742954_n](https://github.com/user-attachments/assets/cb3f4e95-9abf-4a01-8662-0e3c2d44bc5a)
 
 https://www.youtube.com/watch?v=1-o9XXVEJPk
 
