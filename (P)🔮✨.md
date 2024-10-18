@@ -654,3 +654,30 @@ https://www.rom.on.ca/en/collections-research/library-archives
 - Royal Ontario Museum Library and Archives research Appointment
 - 
 https://koalendar.com/e/rom-library-and-archives-research-appointment
+
+
+
+
+### Phone Case + Strap
+- https://eu.xouxou.com/?srsltid=AfmBOoqNfX-Sr8du9njgkGgdxjM7TjkzPA5-qCeNCIZicNkwEUF6Pr8y
+
+### Battery Bank MagSafe
+
+
+
+- https://www.amazon.ca/UGREEN-Magnetic-Compatible-Wireless-Portable/dp/B0D228PXC7/ref=asc_df_B0D228PXC7/?tag=googleshopc0c-20&linkCode=df0&hvadid=716146967498&hvpos=&hvnetw=g&hvrand=16688541139947774212&hvpone=&hvptwo=&hvqmt=&hvdev=c&hvdvcmdl=&hvlocint=&hvlocphy=9000682&hvtargid=pla-2388147605914&psc=1&mcid=b9c8c64f359b377187e16b0efd8801c1&gad_source=1
+- https://www.rokform.com/products/magsafe-magnetic-power-bank?srsltid=AfmBOoon_2hY7h5hIYELM8iPPQh9ZFBE2vy0CikjM96lYvj8xgw4rL-N
+- ( Screen + Stand vs no screen with stronger magnet ) 
+
+
+### Phone Cooelr
+- Black Shark Magnetic Cooelr 4 Pro Mobile Gaming
+
+### Chest Bag ( ? )
+### Backpack ( ? )
+### Carryon 
+( Pelican ) (Foam)
+- [24 Bottle Wine Carrier With Wheels](https://www.pelican.com/us/en/product/cases/24-bottle-wine-carrier-with-wheels/cp-wine-24b-pel/)
+- Artist Ally (No Foam)
+### Cyber Deck Case
+- Cyber Deck Sciliscope + Scanners + Laptop  ( Gaia ) 
