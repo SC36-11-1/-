@@ -14,3 +14,5 @@ https://www.youtube.com/watch?v=zBVuXX2DGRE
 https://www.adafruit.com/
 
 https://www.youtube.com/watch?v=lwWx8GThGqo
+
+https://n-o-d-e.net/zeroterminal3.html
