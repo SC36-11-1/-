@@ -7,6 +7,9 @@ https://www.youtube.com/watch?v=94wqp7RT1FM
 
 https://www.youtube.com/watch?v=zBVuXX2DGRE
 
+2024-10-19 @10:17
+
+https://www.sakugabooru.com/post/show/268074
 
 # Cyber Deck Raspberry Pi W Zero 
 ### ADAFRUIT INDUSTRIES 
